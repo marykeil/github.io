@@ -1,0 +1,26 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Animes on Instagram.hk.cn</title>
+    <link>https://instagram.hk.cn.github.io/anime/index.html</link>
+    <description>Recent content in Animes on Instagram.hk.cn</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en-us</language>
+    <lastBuildDate>Thu, 11 Jan 2024 17:48:21 +0800</lastBuildDate>
+    <atom:link href="https://instagram.hk.cn.github.io/anime/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>anime</title>
+      <link>https://instagram.hk.cn.github.io/anime/hello/index.html</link>
+      <pubDate>Thu, 11 Jan 2024 17:48:21 +0800</pubDate>
+      <guid>https://instagram.hk.cn.github.io/anime/hello/index.html</guid>
+      <description>这是我的第一篇文章 </description>
+    </item>
+    <item>
+      <title>initial</title>
+      <link>https://instagram.hk.cn.github.io/anime/initial/index.html</link>
+      <pubDate>Thu, 11 Jan 2024 17:48:21 +0800</pubDate>
+      <guid>https://instagram.hk.cn.github.io/anime/initial/index.html</guid>
+      <description>Create this Page </description>
+    </item>
+  </channel>
+</rss>
