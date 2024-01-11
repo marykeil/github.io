@@ -1,33 +1,15 @@
-<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
-<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9" xmlns:xhtml="http://www.w3.org/1999/xhtml">
-  <url>
-    <loc>https://instagram.hk.cn.github.io/movies/28-years-later-sequel-in-development-with-original-writer-director-new-trilogy-planned/index.html</loc>
-    <lastmod>2024-01-11T17:48:21+08:00</lastmod>
-  </url>
-  <url>
-    <loc>https://instagram.hk.cn.github.io/movies/8-hunger-games-character-names-that-foreshadowed-their-roles-in-the-story/index.html</loc>
-    <lastmod>2024-01-11T17:48:21+08:00</lastmod>
-  </url>
-  <url>
-    <loc>https://instagram.hk.cn.github.io/movies/aquaman-2-box-office-disappointment-continues-shocking-dceu-trend/index.html</loc>
-    <lastmod>2024-01-11T17:48:21+08:00</lastmod>
-  </url>
-  <url>
-    <loc>https://instagram.hk.cn.github.io/index.html</loc>
-    <lastmod>2024-01-11T17:48:21+08:00</lastmod>
-  </url>
-  <url>
-    <loc>https://instagram.hk.cn.github.io/movies/index.html</loc>
-    <lastmod>2024-01-11T17:48:21+08:00</lastmod>
-  </url>
-  <url>
-    <loc>https://instagram.hk.cn.github.io/movies/new-star-trek-origin-movie-set-decades-before-j.j.-abrams-2009-film-announced/index.html</loc>
-    <lastmod>2024-01-11T17:48:21+08:00</lastmod>
-  </url>
-  <url>
-    <loc>https://instagram.hk.cn.github.io/categories/index.html</loc>
-  </url>
-  <url>
-    <loc>https://instagram.hk.cn.github.io/tags/index.html</loc>
-  </url>
-</urlset>
+<urlset
+  xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
+  xmlns:xhtml="http://www.w3.org/1999/xhtml"
+  ><url>
+      <loc>http://localhost:1313/</loc><lastmod>2024-01-12T01:20:38&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>1</priority></url><url>
+      <loc>http://localhost:1313/movies/28-years-later-sequel-in-development-with-original-writer-director-new-trilogy-planned/</loc><lastmod>2024-01-12T01:20:38&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>1</priority></url><url>
+      <loc>http://localhost:1313/movies/8-hunger-games-character-names-that-foreshadowed-their-roles-in-the-story/</loc><lastmod>2024-01-12T01:20:38&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>1</priority></url><url>
+      <loc>http://localhost:1313/movies/aquaman-2-box-office-disappointment-continues-shocking-dceu-trend/</loc><lastmod>2024-01-12T01:20:38&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>1</priority></url><url>
+      <loc>http://localhost:1313/movies/</loc><lastmod>2024-01-12T01:20:38&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>1</priority></url><url>
+      <loc>http://localhost:1313/movies/new-star-trek-origin-movie-set-decades-before-j.j.-abrams-2009-film-announced/</loc><lastmod>2024-01-12T01:20:38&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>1</priority></url><url>
+      <loc>http://localhost:1313/posts/new-star-trek-origin-movie-set-decades-before-j.j.-abrams-2009-film-announced/</loc><lastmod>2009-10-11T17:48:21&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>0.5</priority></url><url>
+      <loc>http://localhost:1313/posts/</loc><lastmod>2009-10-11T17:48:21&#43;08:00</lastmod><changefreq>weekly</changefreq><priority>0.5</priority></url><url>
+      <loc>http://localhost:1313/categories/</loc><changefreq>weekly</changefreq><priority>0.5</priority></url><url>
+      <loc>http://localhost:1313/collections/</loc><changefreq>weekly</changefreq><priority>0.5</priority></url><url>
+      <loc>http://localhost:1313/tags/</loc><changefreq>weekly</changefreq><priority>0.5</priority></url></urlset>
