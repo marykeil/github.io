@@ -236,5 +236,5 @@ Set in a Chicago sandwich shop, The Bear follows Carmy Berzatto, a young profess
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/15-funniest-scenes-from-the-bear-ranked/  
+> URL: https://instagram.hk.cn/tv/15-funniest-scenes-from-the-bear-ranked/  
 

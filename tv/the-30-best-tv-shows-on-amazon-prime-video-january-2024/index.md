@@ -556,5 +556,5 @@ Watch On Amazon Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-30-best-tv-shows-on-amazon-prime-video-january-2024/  
+> URL: https://instagram.hk.cn/tv/the-30-best-tv-shows-on-amazon-prime-video-january-2024/  
 

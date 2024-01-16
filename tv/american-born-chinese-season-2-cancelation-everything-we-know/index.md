@@ -57,5 +57,5 @@ Though American Born Chinese season 1 reached the boundaries of the graphic nove
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/american-born-chinese-season-2-cancelation-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/american-born-chinese-season-2-cancelation-everything-we-know/  
 

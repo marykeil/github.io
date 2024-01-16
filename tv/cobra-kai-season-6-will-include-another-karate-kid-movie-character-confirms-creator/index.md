@@ -57,5 +57,5 @@ Freddy Fernandez is another option. While he technically appeared in a flashback
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/cobra-kai-season-6-will-include-another-karate-kid-movie-character-confirms-creator/  
+> URL: https://instagram.hk.cn/tv/cobra-kai-season-6-will-include-another-karate-kid-movie-character-confirms-creator/  
 

@@ -97,5 +97,5 @@ Watch On Max
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/friends-massive-joey-change-stopped-the-show-getting-canceled-after-season-1/  
+> URL: https://instagram.hk.cn/tv/friends-massive-joey-change-stopped-the-show-getting-canceled-after-season-1/  
 

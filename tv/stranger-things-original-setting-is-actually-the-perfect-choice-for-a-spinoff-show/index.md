@@ -67,5 +67,5 @@ The biggest aspect of using Montauk in a Stranger Things spinoff is that it woul
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/stranger-things-original-setting-is-actually-the-perfect-choice-for-a-spinoff-show/  
+> URL: https://instagram.hk.cn/tv/stranger-things-original-setting-is-actually-the-perfect-choice-for-a-spinoff-show/  
 

@@ -194,5 +194,5 @@ The separation weighs on the family, but even after Jamie suggests Claire go to 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/outlander-jamie-claire-s-relationship-timeline-explained/  
+> URL: https://instagram.hk.cn/tv/outlander-jamie-claire-s-relationship-timeline-explained/  
 

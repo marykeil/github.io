@@ -211,5 +211,5 @@ Terry Silver was the one who ultimately walked away from his big fight with Choz
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-best-win-every-main-character-has-in-cobra-kai-the-karate-kid-movies/  
+> URL: https://instagram.hk.cn/tv/the-best-win-every-main-character-has-in-cobra-kai-the-karate-kid-movies/  
 

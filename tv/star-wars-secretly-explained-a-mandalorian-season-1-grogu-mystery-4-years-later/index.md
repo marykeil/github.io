@@ -67,5 +67,5 @@ Grogu&#39;s value to the Imperial Remnant (and specifically Moff Gideon) would c
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-secretly-explained-a-mandalorian-season-1-grogu-mystery-4-years-later/  
+> URL: https://instagram.hk.cn/tv/star-wars-secretly-explained-a-mandalorian-season-1-grogu-mystery-4-years-later/  
 

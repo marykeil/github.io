@@ -190,5 +190,5 @@ Star Trek: Picard season 3 is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-picard-season-3-characters-were-desperate-to-see-back-in-star-trek/  
+> URL: https://instagram.hk.cn/tv/10-picard-season-3-characters-were-desperate-to-see-back-in-star-trek/  
 

@@ -223,5 +223,5 @@ Stream on Amazon Prime Video and Apple TV.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-musical-tv-shows-ranked/  
+> URL: https://instagram.hk.cn/tv/10-best-musical-tv-shows-ranked/  
 

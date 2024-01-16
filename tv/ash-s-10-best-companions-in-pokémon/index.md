@@ -179,5 +179,5 @@ Watch Now on Pokémon TV
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ash-s-10-best-companions-in-pok%C3%A9mon/  
+> URL: https://instagram.hk.cn/tv/ash-s-10-best-companions-in-pok%C3%A9mon/  
 

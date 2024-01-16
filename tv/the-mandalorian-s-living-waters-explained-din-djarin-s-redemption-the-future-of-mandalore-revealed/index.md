@@ -75,5 +75,5 @@ The Mythosaur prophecy is surely drawing on this imagery. Mandalore is a barren 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-s-living-waters-explained-din-djarin-s-redemption-the-future-of-mandalore-revealed/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-s-living-waters-explained-din-djarin-s-redemption-the-future-of-mandalore-revealed/  
 

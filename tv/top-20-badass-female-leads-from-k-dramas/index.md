@@ -331,5 +331,5 @@ Watch on Rakuten Viki
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/top-20-badass-female-leads-from-k-dramas/  
+> URL: https://instagram.hk.cn/tv/top-20-badass-female-leads-from-k-dramas/  
 

@@ -60,5 +60,5 @@ With a nearly 63% likelihood that The White Lotus cast member will win the Outst
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-white-lotus-domination-in-one-emmys-category-is-truly-ridiculous/  
+> URL: https://instagram.hk.cn/tv/the-white-lotus-domination-in-one-emmys-category-is-truly-ridiculous/  
 

@@ -62,5 +62,5 @@ However, as Moff Gideon eventually proved, most stormtroopers who had survived w
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-reveals-why-the-new-republic-thought-the-empire-defeated-by-the-mandalorian-season-1/  
+> URL: https://instagram.hk.cn/tv/star-wars-reveals-why-the-new-republic-thought-the-empire-defeated-by-the-mandalorian-season-1/  
 

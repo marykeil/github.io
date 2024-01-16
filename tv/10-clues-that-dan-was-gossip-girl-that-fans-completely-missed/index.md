@@ -138,5 +138,5 @@ On a scale from one to ten of Gossip Girl parents, Dan and Jenny&#39;s dad, Rufu
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-clues-that-dan-was-gossip-girl-that-fans-completely-missed/  
+> URL: https://instagram.hk.cn/tv/10-clues-that-dan-was-gossip-girl-that-fans-completely-missed/  
 

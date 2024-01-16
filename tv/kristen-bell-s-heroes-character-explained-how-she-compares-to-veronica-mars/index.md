@@ -58,5 +58,5 @@ Watch Heroes on Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/kristen-bell-s-heroes-character-explained-how-she-compares-to-veronica-mars/  
+> URL: https://instagram.hk.cn/tv/kristen-bell-s-heroes-character-explained-how-she-compares-to-veronica-mars/  
 

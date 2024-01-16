@@ -187,5 +187,5 @@ John Kreese may not be quite as evil a villain as Terry Silver, but he&#39;s a f
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-12-karate-kid-cobra-kai-villains-ranked-worst-to-best/  
+> URL: https://instagram.hk.cn/tv/all-12-karate-kid-cobra-kai-villains-ranked-worst-to-best/  
 

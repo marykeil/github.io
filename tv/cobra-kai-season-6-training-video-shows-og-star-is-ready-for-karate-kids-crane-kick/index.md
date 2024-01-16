@@ -64,5 +64,5 @@ Cobra Kai season 5 ended with Kreese (Martin Kove) breaking out of prison. He&#3
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/cobra-kai-season-6-training-video-shows-og-star-is-ready-for-karate-kids-crane-kick/  
+> URL: https://instagram.hk.cn/tv/cobra-kai-season-6-training-video-shows-og-star-is-ready-for-karate-kids-crane-kick/  
 

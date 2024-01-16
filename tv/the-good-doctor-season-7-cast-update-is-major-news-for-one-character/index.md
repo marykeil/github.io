@@ -59,5 +59,5 @@ The Good Doctor season 7 premieres on ABC on Tuesday, February 20.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-good-doctor-season-7-cast-update-is-major-news-for-one-character/  
+> URL: https://instagram.hk.cn/tv/the-good-doctor-season-7-cast-update-is-major-news-for-one-character/  
 

@@ -59,5 +59,5 @@ With Piltover seemingly destroyed, much of Arcane season 2 will likely take plac
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/arcane-season-2-may-have-already-confirmed-the-show-s-oldest-league-of-legends-theory/  
+> URL: https://instagram.hk.cn/tv/arcane-season-2-may-have-already-confirmed-the-show-s-oldest-league-of-legends-theory/  
 

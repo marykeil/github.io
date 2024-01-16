@@ -96,5 +96,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/jujutsu-kaisen-season-3-story-characters-everything-we-know-so-far/  
+> URL: https://instagram.hk.cn/tv/jujutsu-kaisen-season-3-story-characters-everything-we-know-so-far/  
 

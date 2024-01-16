@@ -154,5 +154,5 @@ Star Trek: Prodigy is the first TV series in the Star Trek franchise marketed to
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigys-young-alien-heroes-starfleet-future-explained/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigys-young-alien-heroes-starfleet-future-explained/  
 

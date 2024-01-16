@@ -54,5 +54,5 @@ All episodes of Bookie season 1 are now on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/big-bang-theory-creator-s-new-show-gets-season-2-renewal-at-max/  
+> URL: https://instagram.hk.cn/tv/big-bang-theory-creator-s-new-show-gets-season-2-renewal-at-max/  
 

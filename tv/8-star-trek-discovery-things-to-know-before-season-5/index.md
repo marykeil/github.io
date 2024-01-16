@@ -119,5 +119,5 @@ Star Trek: Discovery   Release Date:   2017-09-24    Cast:   Sonequa Martin-Gree
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-star-trek-discovery-things-to-know-before-season-5/  
+> URL: https://instagram.hk.cn/tv/8-star-trek-discovery-things-to-know-before-season-5/  
 

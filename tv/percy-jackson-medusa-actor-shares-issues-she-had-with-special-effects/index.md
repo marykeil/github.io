@@ -69,5 +69,5 @@ Of course, not every difficult effect will have to do with CGI. With the Percy J
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-jackson-medusa-actor-shares-issues-she-had-with-special-effects/  
+> URL: https://instagram.hk.cn/tv/percy-jackson-medusa-actor-shares-issues-she-had-with-special-effects/  
 

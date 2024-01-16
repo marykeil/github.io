@@ -62,5 +62,5 @@ New episodes of Monarch: Legacy of Monsters arrive Fridays on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/kurt-russell-s-age-to-be-addressed-in-monarch-legacy-of-monsters-season-1-ending/  
+> URL: https://instagram.hk.cn/tv/kurt-russell-s-age-to-be-addressed-in-monarch-legacy-of-monsters-season-1-ending/  
 

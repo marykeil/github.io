@@ -80,5 +80,5 @@ Even though Gen V does bring Tek Knight down a few notches, the character&#39;s 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-boys-bravely-adapts-the-gross-comic-story-no-one-thought-amazon-would/  
+> URL: https://instagram.hk.cn/tv/the-boys-bravely-adapts-the-gross-comic-story-no-one-thought-amazon-would/  
 

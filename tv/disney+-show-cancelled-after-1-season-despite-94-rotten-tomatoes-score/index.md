@@ -45,5 +45,5 @@ American Born Chinese ended with more questions about Jin&#39;s status as the Fo
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/disney&#43;-show-cancelled-after-1-season-despite-94-rotten-tomatoes-score/  
+> URL: https://instagram.hk.cn/tv/disney&#43;-show-cancelled-after-1-season-despite-94-rotten-tomatoes-score/  
 

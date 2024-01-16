@@ -80,5 +80,5 @@ Bridgerton season 3, part 1 releases May 16, 2024 on Netflix, with part 2 follow
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/bridgerton-season-3-needs-to-deviate-from-eloises-book-story-for-good/  
+> URL: https://instagram.hk.cn/tv/bridgerton-season-3-needs-to-deviate-from-eloises-book-story-for-good/  
 

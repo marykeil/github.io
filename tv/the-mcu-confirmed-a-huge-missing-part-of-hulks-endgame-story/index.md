@@ -50,5 +50,5 @@ Bruce Banner and the Hulk&#39;s tumultuous relationship had always prompted the 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mcu-confirmed-a-huge-missing-part-of-hulks-endgame-story/  
+> URL: https://instagram.hk.cn/tv/the-mcu-confirmed-a-huge-missing-part-of-hulks-endgame-story/  
 

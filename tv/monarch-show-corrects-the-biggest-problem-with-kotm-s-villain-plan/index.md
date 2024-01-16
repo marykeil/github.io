@@ -61,5 +61,5 @@ Monarch: Legacy of Monsters releases new episodes on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-show-corrects-the-biggest-problem-with-kotm-s-villain-plan/  
+> URL: https://instagram.hk.cn/tv/monarch-show-corrects-the-biggest-problem-with-kotm-s-villain-plan/  
 

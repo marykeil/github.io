@@ -35,5 +35,5 @@ With developments relatively sparse, the latest update on 1923’s progress is p
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1923-season-2-gets-a-major-filming-update-from-spencer-dutton-actor/  
+> URL: https://instagram.hk.cn/tv/1923-season-2-gets-a-major-filming-update-from-spencer-dutton-actor/  
 

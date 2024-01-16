@@ -66,5 +66,5 @@ Watch on Youtube
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/naruto-s-evil-version-proves-he-was-one-tragic-twist-away-from-being-the-ultimate-villain/  
+> URL: https://instagram.hk.cn/tv/naruto-s-evil-version-proves-he-was-one-tragic-twist-away-from-being-the-ultimate-villain/  
 

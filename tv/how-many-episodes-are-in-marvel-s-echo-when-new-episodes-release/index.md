@@ -59,5 +59,5 @@ This is a rarity for the MCU, which typically releases Disney&#43; episodes on a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/how-many-episodes-are-in-marvel-s-echo-when-new-episodes-release/  
+> URL: https://instagram.hk.cn/tv/how-many-episodes-are-in-marvel-s-echo-when-new-episodes-release/  
 

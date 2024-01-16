@@ -142,5 +142,5 @@ A spinoff of the sitcom The Big Bang Theory, Young Sheldon follows the youth and
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-6-ending-explained/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-6-ending-explained/  
 

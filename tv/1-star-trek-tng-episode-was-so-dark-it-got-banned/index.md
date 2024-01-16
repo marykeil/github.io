@@ -71,5 +71,5 @@ Star Trek: The Next Generation   Cast:   Patrick Stewart, Marina Sirtis, Brent S
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1-star-trek-tng-episode-was-so-dark-it-got-banned/  
+> URL: https://instagram.hk.cn/tv/1-star-trek-tng-episode-was-so-dark-it-got-banned/  
 

@@ -59,5 +59,5 @@ The Last of Us season 1 is streaming on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-last-of-us-season-2-officially-casts-its-most-important-character/  
+> URL: https://instagram.hk.cn/tv/the-last-of-us-season-2-officially-casts-its-most-important-character/  
 

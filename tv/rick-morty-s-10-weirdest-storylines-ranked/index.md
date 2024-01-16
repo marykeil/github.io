@@ -179,5 +179,5 @@ Rick and Morty often can’t contain its surreal humor to just a few stories eac
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/rick-morty-s-10-weirdest-storylines-ranked/  
+> URL: https://instagram.hk.cn/tv/rick-morty-s-10-weirdest-storylines-ranked/  
 

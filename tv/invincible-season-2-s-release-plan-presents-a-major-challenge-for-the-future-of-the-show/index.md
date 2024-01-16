@@ -94,5 +94,5 @@ Watch On Amazon Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/invincible-season-2-s-release-plan-presents-a-major-challenge-for-the-future-of-the-show/  
+> URL: https://instagram.hk.cn/tv/invincible-season-2-s-release-plan-presents-a-major-challenge-for-the-future-of-the-show/  
 

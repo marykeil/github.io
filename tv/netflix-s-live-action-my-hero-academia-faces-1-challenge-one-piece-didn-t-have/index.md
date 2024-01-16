@@ -66,5 +66,5 @@ Although My Hero Academia is a superhero show, it isn&#39;t doomed from the star
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-s-live-action-my-hero-academia-faces-1-challenge-one-piece-didn-t-have/  
+> URL: https://instagram.hk.cn/tv/netflix-s-live-action-my-hero-academia-faces-1-challenge-one-piece-didn-t-have/  
 

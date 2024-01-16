@@ -177,5 +177,5 @@ Star Trek: Discovery and Star Trek: Lower Decks are streaming on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/biggest-star-trek-happenings-in-2024-returning-shows-movie-updates-more/  
+> URL: https://instagram.hk.cn/tv/biggest-star-trek-happenings-in-2024-returning-shows-movie-updates-more/  
 

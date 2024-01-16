@@ -51,5 +51,5 @@ Since Bo-Katan has played such an important role in The Mandalorian, she will li
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-star-reveals-the-hilarious-origin-of-bo-katan-s-name/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-star-reveals-the-hilarious-origin-of-bo-katan-s-name/  
 

@@ -68,5 +68,5 @@ You can buy the Blu-ray set when it becomes available from Discotek.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/classic-berserk-anime-finally-gets-the-prestige-blu-ray-edition-it-deserves/  
+> URL: https://instagram.hk.cn/tv/classic-berserk-anime-finally-gets-the-prestige-blu-ray-edition-it-deserves/  
 

@@ -93,5 +93,5 @@ Though it is far from a revealing trailer, the first tease for Daryl Dixon seaso
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-walking-dead-daryl-dixon-season-2-renewal-cast-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/the-walking-dead-daryl-dixon-season-2-renewal-cast-everything-we-know/  
 

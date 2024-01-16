@@ -117,5 +117,5 @@ The novels and comics focus on different enemies, such as the High Republic&#39;
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-the-acolyte-cast-story-details-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/star-wars-the-acolyte-cast-story-details-everything-we-know/  
 

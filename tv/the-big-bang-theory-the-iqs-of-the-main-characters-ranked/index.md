@@ -200,5 +200,5 @@ In terms of emotional intelligence, Sheldon is sadly lacking – even after 12 s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-big-bang-theory-the-iqs-of-the-main-characters-ranked/  
+> URL: https://instagram.hk.cn/tv/the-big-bang-theory-the-iqs-of-the-main-characters-ranked/  
 

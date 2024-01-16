@@ -153,5 +153,5 @@ Percy Jackson and the Olympians season 1 releases new episodes on Tuesdays at 9 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-s-powers-special-abilities-in-percy-jackson-the-olympians-explained/  
+> URL: https://instagram.hk.cn/tv/percy-s-powers-special-abilities-in-percy-jackson-the-olympians-explained/  
 

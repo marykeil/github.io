@@ -110,5 +110,5 @@ Flashbacks to those early days of the BAU would be a great way to explore the wo
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/criminal-minds-why-mandy-patinkin-left-after-season-2/  
+> URL: https://instagram.hk.cn/tv/criminal-minds-why-mandy-patinkin-left-after-season-2/  
 

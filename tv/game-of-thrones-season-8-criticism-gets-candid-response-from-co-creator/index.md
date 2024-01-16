@@ -58,5 +58,5 @@ The same issue arguably plagued Daenerys Targaryen&#39;s (Emilia Clarke) final e
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/game-of-thrones-season-8-criticism-gets-candid-response-from-co-creator/  
+> URL: https://instagram.hk.cn/tv/game-of-thrones-season-8-criticism-gets-candid-response-from-co-creator/  
 

@@ -87,5 +87,5 @@ Swan might not need killing, but Reacher season 2 proves there is no limit to ho
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-dixon-offers-to-kill-swan-in-reacher-season-2/  
+> URL: https://instagram.hk.cn/tv/why-dixon-offers-to-kill-swan-in-reacher-season-2/  
 

@@ -221,5 +221,5 @@ Star Trek: Strange New Worlds seasons 1 and 2 are available to stream on Paramou
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-things-we-want-from-star-trek-strange-new-worlds-season-3/  
+> URL: https://instagram.hk.cn/tv/10-things-we-want-from-star-trek-strange-new-worlds-season-3/  
 

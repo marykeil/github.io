@@ -46,5 +46,5 @@ Apple TV&#43; is on a hot streak, relative to where it&#39;s been previously. Th
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-lasso-season-4-chances-get-unexpected-boost-in-latest-report/  
+> URL: https://instagram.hk.cn/tv/ted-lasso-season-4-chances-get-unexpected-boost-in-latest-report/  
 

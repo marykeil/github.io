@@ -63,5 +63,5 @@ While Cruise&#39;s portrayal of Reacher certainly has its merits, and the first 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-star-alan-ritchson-addresses-comparisons-to-tom-cruise-s-jack-reacher/  
+> URL: https://instagram.hk.cn/tv/reacher-star-alan-ritchson-addresses-comparisons-to-tom-cruise-s-jack-reacher/  
 

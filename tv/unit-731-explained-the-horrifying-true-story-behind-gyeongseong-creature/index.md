@@ -95,5 +95,5 @@ Sources: Camb Q Healthc Ethics. 2014 Apr, The New York Times, Atlantis Press, Fa
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/unit-731-explained-the-horrifying-true-story-behind-gyeongseong-creature/  
+> URL: https://instagram.hk.cn/tv/unit-731-explained-the-horrifying-true-story-behind-gyeongseong-creature/  
 

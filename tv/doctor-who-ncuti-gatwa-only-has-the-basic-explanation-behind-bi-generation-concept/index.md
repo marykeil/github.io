@@ -54,5 +54,5 @@ More information about bi-generation could be revealed when Doctor Who season 14
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/doctor-who-ncuti-gatwa-only-has-the-basic-explanation-behind-bi-generation-concept/  
+> URL: https://instagram.hk.cn/tv/doctor-who-ncuti-gatwa-only-has-the-basic-explanation-behind-bi-generation-concept/  
 

@@ -56,5 +56,5 @@ On top of her acting abilities, Kaitlyn Dever also looks a lot like Abby from th
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-last-of-us-season-2-s-abby-casting-makes-us-glad-this-10-year-old-fan-dream-never-happened/  
+> URL: https://instagram.hk.cn/tv/the-last-of-us-season-2-s-abby-casting-makes-us-glad-this-10-year-old-fan-dream-never-happened/  
 

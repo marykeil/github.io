@@ -131,5 +131,5 @@ Unlike other Korrasami cosplays, this one recreates a specific scene from The Le
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-korra-asami-cosplays-that-make-a-case-for-live-action-legend-of-korra/  
+> URL: https://instagram.hk.cn/tv/10-korra-asami-cosplays-that-make-a-case-for-live-action-legend-of-korra/  
 

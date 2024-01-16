@@ -70,5 +70,5 @@ Revisiting a franchise that has consistently failed to deliver after a successfu
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/how-true-detective-season-4-s-rotten-tomatoes-score-compares-to-season-1/  
+> URL: https://instagram.hk.cn/tv/how-true-detective-season-4-s-rotten-tomatoes-score-compares-to-season-1/  
 

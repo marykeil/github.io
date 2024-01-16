@@ -54,5 +54,5 @@ Star Trek: Enterprise and Star Trek: Picard are available to stream on Paramount
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/picard-season-3s-captain-shaw-breakout-actor-reminds-fans-he-was-in-star-trek-before/  
+> URL: https://instagram.hk.cn/tv/picard-season-3s-captain-shaw-breakout-actor-reminds-fans-he-was-in-star-trek-before/  
 

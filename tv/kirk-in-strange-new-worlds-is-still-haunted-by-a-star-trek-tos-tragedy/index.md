@@ -67,5 +67,5 @@ Star Trek: Strange New Worlds and Star Trek: The Original Series are available t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/kirk-in-strange-new-worlds-is-still-haunted-by-a-star-trek-tos-tragedy/  
+> URL: https://instagram.hk.cn/tv/kirk-in-strange-new-worlds-is-still-haunted-by-a-star-trek-tos-tragedy/  
 

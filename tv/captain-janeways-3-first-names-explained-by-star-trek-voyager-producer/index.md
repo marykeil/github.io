@@ -55,5 +55,5 @@ Star Trek: Voyager is available to stream on Paramount&#43; &amp; Star Trek: Pro
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/captain-janeways-3-first-names-explained-by-star-trek-voyager-producer/  
+> URL: https://instagram.hk.cn/tv/captain-janeways-3-first-names-explained-by-star-trek-voyager-producer/  
 

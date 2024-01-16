@@ -59,5 +59,5 @@ Watch Now
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/new-isekai-anime-is-already-the-season-s-must-watch-romance/  
+> URL: https://instagram.hk.cn/tv/new-isekai-anime-is-already-the-season-s-must-watch-romance/  
 

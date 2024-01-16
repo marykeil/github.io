@@ -62,5 +62,5 @@ This doesn&#39;t just mean weight loss, either. Murray has grown as an actor sin
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ncis-how-timothy-mcgees-sean-murray-lost-so-much-weight-in-season-8/  
+> URL: https://instagram.hk.cn/tv/ncis-how-timothy-mcgees-sean-murray-lost-so-much-weight-in-season-8/  
 

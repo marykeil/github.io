@@ -101,5 +101,5 @@ It seems as though the major plot threads that The Good Doctor will follow will 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-good-doctor-season-7-release-date-cast-changes-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/the-good-doctor-season-7-release-date-cast-changes-everything-we-know/  
 

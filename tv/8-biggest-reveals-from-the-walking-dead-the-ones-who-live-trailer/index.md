@@ -105,5 +105,5 @@ The yellow gas being used as a chemical weapon at the end of The Walking Dead: T
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-biggest-reveals-from-the-walking-dead-the-ones-who-live-trailer/  
+> URL: https://instagram.hk.cn/tv/8-biggest-reveals-from-the-walking-dead-the-ones-who-live-trailer/  
 

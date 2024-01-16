@@ -95,5 +95,5 @@ While Netflix won&#39;t have a trailer for season 2 any time soon, the streamer 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/wednesday-season-2-cast-plot-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/wednesday-season-2-cast-plot-everything-we-know/  
 

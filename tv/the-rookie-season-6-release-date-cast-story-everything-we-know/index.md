@@ -87,5 +87,5 @@ The Rookie season 6 story will also have to figure out who lived and who died in
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-rookie-season-6-release-date-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/the-rookie-season-6-release-date-cast-story-everything-we-know/  
 

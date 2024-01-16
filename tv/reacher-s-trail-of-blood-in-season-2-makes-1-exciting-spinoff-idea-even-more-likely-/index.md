@@ -72,5 +72,5 @@ Reacher season 2 concludes Friday on Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-s-trail-of-blood-in-season-2-makes-1-exciting-spinoff-idea-even-more-likely-/  
+> URL: https://instagram.hk.cn/tv/reacher-s-trail-of-blood-in-season-2-makes-1-exciting-spinoff-idea-even-more-likely-/  
 

@@ -132,5 +132,5 @@ The Last of Us season 2 is expected to premiere in 2025.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-great-the-last-of-us-theories-that-season-2-should-confirm/  
+> URL: https://instagram.hk.cn/tv/8-great-the-last-of-us-theories-that-season-2-should-confirm/  
 

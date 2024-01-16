@@ -50,5 +50,5 @@ Moreover, with the recent struggles experienced by both Marvel and DC’s more r
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/more-game-of-thrones-spinoffs-are-much-closer-to-happening-according-to-new-update/  
+> URL: https://instagram.hk.cn/tv/more-game-of-thrones-spinoffs-are-much-closer-to-happening-according-to-new-update/  
 

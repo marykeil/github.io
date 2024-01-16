@@ -60,5 +60,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/naruto-s-darkest-version-is-technically-canon-thanks-to-one-shippuden-episode/  
+> URL: https://instagram.hk.cn/tv/naruto-s-darkest-version-is-technically-canon-thanks-to-one-shippuden-episode/  
 

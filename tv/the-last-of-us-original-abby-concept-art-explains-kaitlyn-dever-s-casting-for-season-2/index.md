@@ -54,5 +54,5 @@ While Abby is strong, her physical appearance is not necessary for the story of 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-last-of-us-original-abby-concept-art-explains-kaitlyn-dever-s-casting-for-season-2/  
+> URL: https://instagram.hk.cn/tv/the-last-of-us-original-abby-concept-art-explains-kaitlyn-dever-s-casting-for-season-2/  
 

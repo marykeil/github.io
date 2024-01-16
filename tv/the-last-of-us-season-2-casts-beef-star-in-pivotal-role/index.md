@@ -49,5 +49,5 @@ It will be interesting to see how Joel and Ellie interact with the new character
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-last-of-us-season-2-casts-beef-star-in-pivotal-role/  
+> URL: https://instagram.hk.cn/tv/the-last-of-us-season-2-casts-beef-star-in-pivotal-role/  
 

@@ -65,5 +65,5 @@ All episodes of Star Trek: The Original Series and Star Trek: The Next Generatio
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/which-3-star-trek-shows-exist-in-for-all-mankind-confirmed-by-executive-producer/  
+> URL: https://instagram.hk.cn/tv/which-3-star-trek-shows-exist-in-for-all-mankind-confirmed-by-executive-producer/  
 

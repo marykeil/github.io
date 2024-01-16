@@ -95,5 +95,5 @@ In the first Ted movie, John was forced to choose between his fiancée Lori and 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-prequel-show-ending-explained/  
+> URL: https://instagram.hk.cn/tv/ted-prequel-show-ending-explained/  
 

@@ -102,5 +102,5 @@ Still, there&#39;s a way to keep George in Young Sheldon. CBS could finally let 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/a-secret-young-sheldon-season-6-detail-reveals-georges-death-is-close/  
+> URL: https://instagram.hk.cn/tv/a-secret-young-sheldon-season-6-detail-reveals-georges-death-is-close/  
 

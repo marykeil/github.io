@@ -71,5 +71,5 @@ Now that Jackie is the first confirmed victim of cannibalism, and Javi is the ne
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/yellowjackets-necklace-explained-who-died-in-episode-1-s-opening-scene/  
+> URL: https://instagram.hk.cn/tv/yellowjackets-necklace-explained-who-died-in-episode-1-s-opening-scene/  
 

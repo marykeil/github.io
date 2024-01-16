@@ -204,5 +204,5 @@ The arrival of variant zombies in The Walking Dead has sparked questions for the
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-walking-dead-series-finale-ending-explained-in-detail/  
+> URL: https://instagram.hk.cn/tv/the-walking-dead-series-finale-ending-explained-in-detail/  
 

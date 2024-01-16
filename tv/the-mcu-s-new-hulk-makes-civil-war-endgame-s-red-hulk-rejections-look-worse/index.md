@@ -55,5 +55,5 @@ Red Hulk is part of the Thunderbolts’ team in the comics, where he and the tea
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mcu-s-new-hulk-makes-civil-war-endgame-s-red-hulk-rejections-look-worse/  
+> URL: https://instagram.hk.cn/tv/the-mcu-s-new-hulk-makes-civil-war-endgame-s-red-hulk-rejections-look-worse/  
 

@@ -122,5 +122,5 @@ The Brothers Sun will release globally on Netflix on January 4.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-brothers-sun-interview-justin-chien-on-sibling-bonding-martial-arts-mastery/  
+> URL: https://instagram.hk.cn/tv/the-brothers-sun-interview-justin-chien-on-sibling-bonding-martial-arts-mastery/  
 

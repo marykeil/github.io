@@ -69,5 +69,5 @@ A trilogy of Warrior Nun movies was announced to be in the works by producer Dea
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/warrior-nun-season-2-s-original-end-credits-scene-would-have-been-a-better-ending-for-the-show/  
+> URL: https://instagram.hk.cn/tv/warrior-nun-season-2-s-original-end-credits-scene-would-have-been-a-better-ending-for-the-show/  
 

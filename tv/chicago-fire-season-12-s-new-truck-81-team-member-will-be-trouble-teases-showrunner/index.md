@@ -56,5 +56,5 @@ Flynn is set to play a new character named Jake Gibson on Chicago Fire season 12
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chicago-fire-season-12-s-new-truck-81-team-member-will-be-trouble-teases-showrunner/  
+> URL: https://instagram.hk.cn/tv/chicago-fire-season-12-s-new-truck-81-team-member-will-be-trouble-teases-showrunner/  
 

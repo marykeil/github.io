@@ -202,5 +202,5 @@ The Buddhist themes of dettachment hinted at in Beef episode 9&#39;s title take 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/beef-episode-titles-deeper-meaning-references-explained/  
+> URL: https://instagram.hk.cn/tv/beef-episode-titles-deeper-meaning-references-explained/  
 

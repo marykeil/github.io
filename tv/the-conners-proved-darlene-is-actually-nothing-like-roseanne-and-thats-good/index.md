@@ -66,5 +66,5 @@ Later seasons of The Conners leaned into this idea further as Darlene spent seas
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-conners-proved-darlene-is-actually-nothing-like-roseanne-and-thats-good/  
+> URL: https://instagram.hk.cn/tv/the-conners-proved-darlene-is-actually-nothing-like-roseanne-and-thats-good/  
 

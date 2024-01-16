@@ -60,5 +60,5 @@ The unplanned series finale doesn&#39;t allow for everyone&#39;s story to be nea
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/magnum-p.i.-season-6-story-details-revealed-by-showrunner-after-series-finale/  
+> URL: https://instagram.hk.cn/tv/magnum-p.i.-season-6-story-details-revealed-by-showrunner-after-series-finale/  
 

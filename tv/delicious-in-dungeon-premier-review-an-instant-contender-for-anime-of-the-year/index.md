@@ -63,5 +63,5 @@ Watch On Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/delicious-in-dungeon-premier-review-an-instant-contender-for-anime-of-the-year/  
+> URL: https://instagram.hk.cn/tv/delicious-in-dungeon-premier-review-an-instant-contender-for-anime-of-the-year/  
 

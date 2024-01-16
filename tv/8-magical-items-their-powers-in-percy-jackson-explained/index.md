@@ -122,5 +122,5 @@ New episodes of Percy Jackson and the Olympians release every Tuesday on Disney&
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-magical-items-their-powers-in-percy-jackson-explained/  
+> URL: https://instagram.hk.cn/tv/8-magical-items-their-powers-in-percy-jackson-explained/  
 

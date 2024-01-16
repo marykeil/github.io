@@ -54,5 +54,5 @@ Given that Cobra Kai season 6 will be longer than any previous season, as Schlos
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/cobra-kai-season-6-s-runtime-episode-count-teased-by-co-creator/  
+> URL: https://instagram.hk.cn/tv/cobra-kai-season-6-s-runtime-episode-count-teased-by-co-creator/  
 

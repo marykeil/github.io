@@ -56,5 +56,5 @@ Given how popular John Stewart is as a DC superhero thanks to the Justice League
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/fan-favorite-green-lantern-actor-candidate-reignites-dc-universe-casting-hopes/  
+> URL: https://instagram.hk.cn/tv/fan-favorite-green-lantern-actor-candidate-reignites-dc-universe-casting-hopes/  
 

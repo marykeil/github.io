@@ -57,5 +57,5 @@ Young Sheldon season 7 premieres on February 15.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-7-image-shows-first-look-at-grown-up-sheldon/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-7-image-shows-first-look-at-grown-up-sheldon/  
 

@@ -82,5 +82,5 @@ Seasons 1-6 of Rick &amp; Morty can be streamed on Hulu, with season 7 arriving 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/solar-opposites-meta-recasting-of-justin-roiland-didn-t-work-as-well-as-rick-and-morty-s/  
+> URL: https://instagram.hk.cn/tv/solar-opposites-meta-recasting-of-justin-roiland-didn-t-work-as-well-as-rick-and-morty-s/  
 

@@ -81,5 +81,5 @@ Hunters showrunner David Weil also spoke to THR, and was quite happy with the st
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-there-wont-be-a-hunters-season-3/  
+> URL: https://instagram.hk.cn/tv/why-there-wont-be-a-hunters-season-3/  
 

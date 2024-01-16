@@ -55,5 +55,5 @@ Star Trek: Strange New Worlds is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/strange-new-worlds-season-3-filming-resumes-star-trek-director-shares-bts-enterprise-pic/  
+> URL: https://instagram.hk.cn/tv/strange-new-worlds-season-3-filming-resumes-star-trek-director-shares-bts-enterprise-pic/  
 

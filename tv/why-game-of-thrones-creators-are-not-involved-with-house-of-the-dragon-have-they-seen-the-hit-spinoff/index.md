@@ -67,5 +67,5 @@ House of the Dragon season 1 is streaming on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-game-of-thrones-creators-are-not-involved-with-house-of-the-dragon-have-they-seen-the-hit-spinoff/  
+> URL: https://instagram.hk.cn/tv/why-game-of-thrones-creators-are-not-involved-with-house-of-the-dragon-have-they-seen-the-hit-spinoff/  
 

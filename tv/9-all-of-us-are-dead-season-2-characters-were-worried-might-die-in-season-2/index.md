@@ -134,5 +134,5 @@ On-jo dying in All Of Us Are Dead season 2 seems very unlikely, which is why it 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/9-all-of-us-are-dead-season-2-characters-were-worried-might-die-in-season-2/  
+> URL: https://instagram.hk.cn/tv/9-all-of-us-are-dead-season-2-characters-were-worried-might-die-in-season-2/  
 

@@ -67,5 +67,5 @@ Keeping Logan in every Succession season made his death even better. If Jesse Ar
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/succession-s-biggest-twist-almost-happened-3-seasons-earlier-it-would-have-changed-everything/  
+> URL: https://instagram.hk.cn/tv/succession-s-biggest-twist-almost-happened-3-seasons-earlier-it-would-have-changed-everything/  
 

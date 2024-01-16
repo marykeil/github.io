@@ -184,5 +184,5 @@ Sources: Los Angeles Times, ATX TV, and Discover Magazine
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-harsh-realities-of-watching-battlestar-galactica-s-reboot-20-years-later/  
+> URL: https://instagram.hk.cn/tv/10-harsh-realities-of-watching-battlestar-galactica-s-reboot-20-years-later/  
 

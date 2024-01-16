@@ -252,5 +252,5 @@ It&#39;s revealed in the Riverdale series finale that ending up in the alternate
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/riverdale-veronica-archie-s-relationship-timeline-explained/  
+> URL: https://instagram.hk.cn/tv/riverdale-veronica-archie-s-relationship-timeline-explained/  
 

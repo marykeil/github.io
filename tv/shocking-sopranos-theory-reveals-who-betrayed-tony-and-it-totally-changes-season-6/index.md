@@ -76,5 +76,5 @@ Paulie betraying Tony changes the way viewers will watch The Sopranos season 6, 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/shocking-sopranos-theory-reveals-who-betrayed-tony-and-it-totally-changes-season-6/  
+> URL: https://instagram.hk.cn/tv/shocking-sopranos-theory-reveals-who-betrayed-tony-and-it-totally-changes-season-6/  
 

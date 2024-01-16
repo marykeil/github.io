@@ -74,5 +74,5 @@ In the end, this Naughty Dog trend proves that fancasting is not always a fruitl
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-last-of-us-abby-casting-continues-a-naughty-dog-adaptation-trend-uncharted-started/  
+> URL: https://instagram.hk.cn/tv/the-last-of-us-abby-casting-continues-a-naughty-dog-adaptation-trend-uncharted-started/  
 

@@ -55,5 +55,5 @@ All episodes of SEAL Team are available on Paramount Plus.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/seal-team-season-7-begins-filming-in-bts-photo-shared-by-david-boreanaz/  
+> URL: https://instagram.hk.cn/tv/seal-team-season-7-begins-filming-in-bts-photo-shared-by-david-boreanaz/  
 

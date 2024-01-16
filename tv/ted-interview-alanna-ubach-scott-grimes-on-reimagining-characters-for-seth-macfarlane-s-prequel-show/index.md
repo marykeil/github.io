@@ -88,5 +88,5 @@ Ted begins streaming on Peacock on January 11.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-interview-alanna-ubach-scott-grimes-on-reimagining-characters-for-seth-macfarlane-s-prequel-show/  
+> URL: https://instagram.hk.cn/tv/ted-interview-alanna-ubach-scott-grimes-on-reimagining-characters-for-seth-macfarlane-s-prequel-show/  
 

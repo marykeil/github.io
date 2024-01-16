@@ -60,5 +60,5 @@ While DC Studios and Warner Bros. Discovery will obviously be prioritizing setti
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/smallville-s-tom-welling-erica-durance-recreate-iconic-superman-lois-lane-moment-from-the-show-14-years-later/  
+> URL: https://instagram.hk.cn/tv/smallville-s-tom-welling-erica-durance-recreate-iconic-superman-lois-lane-moment-from-the-show-14-years-later/  
 

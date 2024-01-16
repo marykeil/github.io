@@ -71,5 +71,5 @@ Watch 2 Fast 2 Furious On Amazon Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/yellowstone-fans-react-to-cole-hauser-s-pitch-black-character/  
+> URL: https://instagram.hk.cn/tv/yellowstone-fans-react-to-cole-hauser-s-pitch-black-character/  
 

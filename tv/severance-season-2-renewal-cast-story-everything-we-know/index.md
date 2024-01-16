@@ -86,5 +86,5 @@ There are also several mysteries surrounding Lumon that Severance season 2 could
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/severance-season-2-renewal-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/severance-season-2-renewal-cast-story-everything-we-know/  
 

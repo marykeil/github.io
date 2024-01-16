@@ -63,5 +63,5 @@ Watch All of Us Are Dead on Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-of-us-are-dead-secretly-told-you-what-season-2-was-going-to-be-about-before-season-1-even-premiered/  
+> URL: https://instagram.hk.cn/tv/all-of-us-are-dead-secretly-told-you-what-season-2-was-going-to-be-about-before-season-1-even-premiered/  
 

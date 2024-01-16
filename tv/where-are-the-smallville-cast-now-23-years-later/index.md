@@ -252,5 +252,5 @@ Alan Ritchson probably boasts the most prominent career after Smallville. Ritchs
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/where-are-the-smallville-cast-now-23-years-later/  
+> URL: https://instagram.hk.cn/tv/where-are-the-smallville-cast-now-23-years-later/  
 

@@ -52,5 +52,5 @@ Raymond Lee&#39;s version of Quantum Leap has taken unprecedented steps to drive
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/quantum-leap-season-2-midseason-premiere-two-part-finale-dates-revealed-with-one-big-twist/  
+> URL: https://instagram.hk.cn/tv/quantum-leap-season-2-midseason-premiere-two-part-finale-dates-revealed-with-one-big-twist/  
 

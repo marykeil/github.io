@@ -139,5 +139,5 @@ Based on the novels by L.J. Smith, The Vampire Diaries is a story about the deve
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-vampire-diaries-10-most-ridiculous-moments-ranked/  
+> URL: https://instagram.hk.cn/tv/the-vampire-diaries-10-most-ridiculous-moments-ranked/  
 

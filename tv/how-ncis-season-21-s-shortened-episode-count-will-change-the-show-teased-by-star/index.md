@@ -54,5 +54,5 @@ NCIS season 21 premieres Monday, February 12 at 9 p.m. EST on CBS.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/how-ncis-season-21-s-shortened-episode-count-will-change-the-show-teased-by-star/  
+> URL: https://instagram.hk.cn/tv/how-ncis-season-21-s-shortened-episode-count-will-change-the-show-teased-by-star/  
 

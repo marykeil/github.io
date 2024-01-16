@@ -69,5 +69,5 @@ If this theory pans out, Din&#39;s Imperial bounties could be transported on Her
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-s-strangest-decision-means-din-djarin-faces-a-massive-problem-in-season-4/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-s-strangest-decision-means-din-djarin-faces-a-massive-problem-in-season-4/  
 

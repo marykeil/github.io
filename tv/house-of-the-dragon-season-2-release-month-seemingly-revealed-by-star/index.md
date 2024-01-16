@@ -49,5 +49,5 @@ Because of this, releasing House of the Dragon as soon as it&#39;s ready will li
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/house-of-the-dragon-season-2-release-month-seemingly-revealed-by-star/  
+> URL: https://instagram.hk.cn/tv/house-of-the-dragon-season-2-release-month-seemingly-revealed-by-star/  
 

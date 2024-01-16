@@ -59,5 +59,5 @@ All episodes of Twisted Metal season 1 are available on Peacock.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/twisted-metal-season-2-gets-detailed-update-from-showrunner/  
+> URL: https://instagram.hk.cn/tv/twisted-metal-season-2-gets-detailed-update-from-showrunner/  
 

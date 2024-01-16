@@ -60,5 +60,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gojo-s-limitless-technique-in-jujutsu-kaisen-explained/  
+> URL: https://instagram.hk.cn/tv/gojo-s-limitless-technique-in-jujutsu-kaisen-explained/  
 

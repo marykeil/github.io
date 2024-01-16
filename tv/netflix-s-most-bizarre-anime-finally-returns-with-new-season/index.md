@@ -66,5 +66,5 @@ MAPPA working on Dorohedoro might mean that other series will take a backseat. T
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-s-most-bizarre-anime-finally-returns-with-new-season/  
+> URL: https://instagram.hk.cn/tv/netflix-s-most-bizarre-anime-finally-returns-with-new-season/  
 

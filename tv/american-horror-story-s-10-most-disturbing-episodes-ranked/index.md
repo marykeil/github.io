@@ -137,5 +137,5 @@ American Horror Story is a Horror Anthology series created by Ryan Murphy and Br
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/american-horror-story-s-10-most-disturbing-episodes-ranked/  
+> URL: https://instagram.hk.cn/tv/american-horror-story-s-10-most-disturbing-episodes-ranked/  
 

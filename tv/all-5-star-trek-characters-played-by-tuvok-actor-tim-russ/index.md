@@ -127,5 +127,5 @@ Star Trek: The Next Generation, Star Trek: Deep Space Nine, Star Trek: Voyager, 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-5-star-trek-characters-played-by-tuvok-actor-tim-russ/  
+> URL: https://instagram.hk.cn/tv/all-5-star-trek-characters-played-by-tuvok-actor-tim-russ/  
 

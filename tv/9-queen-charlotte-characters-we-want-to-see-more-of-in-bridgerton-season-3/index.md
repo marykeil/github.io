@@ -131,5 +131,5 @@ As the queen&#39;s brother, Adolphus made sure to do everything to keep Charlott
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/9-queen-charlotte-characters-we-want-to-see-more-of-in-bridgerton-season-3/  
+> URL: https://instagram.hk.cn/tv/9-queen-charlotte-characters-we-want-to-see-more-of-in-bridgerton-season-3/  
 

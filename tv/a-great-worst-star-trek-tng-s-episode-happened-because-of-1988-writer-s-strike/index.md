@@ -76,5 +76,5 @@ Star Trek: The Next Generation is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/a-great-worst-star-trek-tng-s-episode-happened-because-of-1988-writer-s-strike/  
+> URL: https://instagram.hk.cn/tv/a-great-worst-star-trek-tng-s-episode-happened-because-of-1988-writer-s-strike/  
 

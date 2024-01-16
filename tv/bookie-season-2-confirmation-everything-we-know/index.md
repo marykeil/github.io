@@ -61,5 +61,5 @@ Amid all of his other struggles, the finale of Bookie season 1 gave Danny a clea
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/bookie-season-2-confirmation-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/bookie-season-2-confirmation-everything-we-know/  
 

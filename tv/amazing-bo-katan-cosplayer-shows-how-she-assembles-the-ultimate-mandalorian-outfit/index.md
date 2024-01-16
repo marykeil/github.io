@@ -48,5 +48,5 @@ Another reason this is significant is because it signals her return to the old w
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/amazing-bo-katan-cosplayer-shows-how-she-assembles-the-ultimate-mandalorian-outfit/  
+> URL: https://instagram.hk.cn/tv/amazing-bo-katan-cosplayer-shows-how-she-assembles-the-ultimate-mandalorian-outfit/  
 

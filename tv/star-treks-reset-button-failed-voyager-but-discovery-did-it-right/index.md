@@ -59,5 +59,5 @@ Star Trek: Voyager and Star Trek: Discovery are both available to stream on Para
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-treks-reset-button-failed-voyager-but-discovery-did-it-right/  
+> URL: https://instagram.hk.cn/tv/star-treks-reset-button-failed-voyager-but-discovery-did-it-right/  
 

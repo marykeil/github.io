@@ -45,5 +45,5 @@ Young Sheldon ending despite still being very popular is disappointing. The show
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-6-streaming-release-date-confirmed/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-6-streaming-release-date-confirmed/  
 

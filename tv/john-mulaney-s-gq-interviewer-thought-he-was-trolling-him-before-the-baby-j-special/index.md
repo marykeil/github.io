@@ -73,5 +73,5 @@ Watch Baby J On NetflixSources: GQ
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/john-mulaney-s-gq-interviewer-thought-he-was-trolling-him-before-the-baby-j-special/  
+> URL: https://instagram.hk.cn/tv/john-mulaney-s-gq-interviewer-thought-he-was-trolling-him-before-the-baby-j-special/  
 

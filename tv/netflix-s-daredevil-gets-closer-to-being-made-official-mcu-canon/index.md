@@ -48,5 +48,5 @@ From Spider-Man: No Way Home to Hawkeye and She-Hulk: Attorney at Law, Daredevil
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-s-daredevil-gets-closer-to-being-made-official-mcu-canon/  
+> URL: https://instagram.hk.cn/tv/netflix-s-daredevil-gets-closer-to-being-made-official-mcu-canon/  
 

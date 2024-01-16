@@ -73,5 +73,5 @@ But the most famous Star Wars shoto-wielder is Ahsoka Tano, who used as a shoto 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-set-up-ahsoka-s-second-lightsaber-29-years-before-the-clone-wars-movie/  
+> URL: https://instagram.hk.cn/tv/star-wars-set-up-ahsoka-s-second-lightsaber-29-years-before-the-clone-wars-movie/  
 

@@ -87,5 +87,5 @@ The Wheel of Time is available to stream on Amazon Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-direction-wheel-of-time-is-heading-in-means-season-3-might-skip-a-whole-book/  
+> URL: https://instagram.hk.cn/tv/the-direction-wheel-of-time-is-heading-in-means-season-3-might-skip-a-whole-book/  
 

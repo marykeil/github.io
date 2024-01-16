@@ -57,5 +57,5 @@ Lucasfilm recently confirmed that Tales of the Jedi season 2 is set to release i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-tales-of-the-jedi-season-2-updates-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/star-wars-tales-of-the-jedi-season-2-updates-story-everything-we-know/  
 

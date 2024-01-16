@@ -65,5 +65,5 @@ Cobra Kai is available to stream on Netflix. The original Karate Kid trilogy is 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-age-gap-between-2-cobra-kai-actors-is-completely-at-odds-with-their-characters-dynamic/  
+> URL: https://instagram.hk.cn/tv/the-age-gap-between-2-cobra-kai-actors-is-completely-at-odds-with-their-characters-dynamic/  
 

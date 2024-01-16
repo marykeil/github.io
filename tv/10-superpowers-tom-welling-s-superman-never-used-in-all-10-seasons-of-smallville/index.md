@@ -159,5 +159,5 @@ Most of the odd, one-off abilities used by Christopher Reeve&#39;s Superman in t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-superpowers-tom-welling-s-superman-never-used-in-all-10-seasons-of-smallville/  
+> URL: https://instagram.hk.cn/tv/10-superpowers-tom-welling-s-superman-never-used-in-all-10-seasons-of-smallville/  
 

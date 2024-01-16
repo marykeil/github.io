@@ -54,5 +54,5 @@ Ultimately, it seems that his role in that show, which is preparing to end with 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-the-magnum-p.i.-reboot-never-featured-a-tom-selleck-cameo-explained-by-showrunner/  
+> URL: https://instagram.hk.cn/tv/why-the-magnum-p.i.-reboot-never-featured-a-tom-selleck-cameo-explained-by-showrunner/  
 

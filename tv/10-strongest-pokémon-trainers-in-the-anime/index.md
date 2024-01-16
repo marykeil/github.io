@@ -160,5 +160,5 @@ Watch on Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-strongest-pok%C3%A9mon-trainers-in-the-anime/  
+> URL: https://instagram.hk.cn/tv/10-strongest-pok%C3%A9mon-trainers-in-the-anime/  
 

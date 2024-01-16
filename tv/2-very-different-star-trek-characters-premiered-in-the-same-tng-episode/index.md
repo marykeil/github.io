@@ -77,5 +77,5 @@ Cast   Patrick Stewart , Marina Sirtis , Brent Spiner , Jonathan Frakes , LeVar 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/2-very-different-star-trek-characters-premiered-in-the-same-tng-episode/  
+> URL: https://instagram.hk.cn/tv/2-very-different-star-trek-characters-premiered-in-the-same-tng-episode/  
 

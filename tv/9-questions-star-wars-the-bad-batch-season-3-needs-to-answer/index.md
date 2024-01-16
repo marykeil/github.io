@@ -122,5 +122,5 @@ The Bad Batch seasons 1 and 2 are now streaming on Disney&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/9-questions-star-wars-the-bad-batch-season-3-needs-to-answer/  
+> URL: https://instagram.hk.cn/tv/9-questions-star-wars-the-bad-batch-season-3-needs-to-answer/  
 

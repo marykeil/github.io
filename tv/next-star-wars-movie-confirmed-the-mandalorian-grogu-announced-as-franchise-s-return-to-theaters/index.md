@@ -23,5 +23,5 @@ Favreau previously confirmed he had already written The Mandalorian season 4, wh
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/next-star-wars-movie-confirmed-the-mandalorian-grogu-announced-as-franchise-s-return-to-theaters/  
+> URL: https://instagram.hk.cn/tv/next-star-wars-movie-confirmed-the-mandalorian-grogu-announced-as-franchise-s-return-to-theaters/  
 

@@ -64,5 +64,5 @@ Watch now
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/crunchyroll-mightve-just-debuted-its-most-complicated-isekai-yet/  
+> URL: https://instagram.hk.cn/tv/crunchyroll-mightve-just-debuted-its-most-complicated-isekai-yet/  
 

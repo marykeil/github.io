@@ -184,5 +184,5 @@ Finally, Barbara Kean being forced to kill her parents completes Gotham&#39;s mo
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-most-brutal-deaths-in-all-5-seasons-of-gotham-/  
+> URL: https://instagram.hk.cn/tv/10-most-brutal-deaths-in-all-5-seasons-of-gotham-/  
 

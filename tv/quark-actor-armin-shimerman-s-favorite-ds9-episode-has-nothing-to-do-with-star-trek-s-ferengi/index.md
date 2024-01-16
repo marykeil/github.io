@@ -65,5 +65,5 @@ All episodes of Star Trek: Deep Space Nine are streaming now on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/quark-actor-armin-shimerman-s-favorite-ds9-episode-has-nothing-to-do-with-star-trek-s-ferengi/  
+> URL: https://instagram.hk.cn/tv/quark-actor-armin-shimerman-s-favorite-ds9-episode-has-nothing-to-do-with-star-trek-s-ferengi/  
 

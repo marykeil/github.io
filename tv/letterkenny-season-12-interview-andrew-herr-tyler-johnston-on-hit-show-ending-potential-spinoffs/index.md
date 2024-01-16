@@ -127,5 +127,5 @@ All seasons of Letterkenny are now available to stream on Hulu.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/letterkenny-season-12-interview-andrew-herr-tyler-johnston-on-hit-show-ending-potential-spinoffs/  
+> URL: https://instagram.hk.cn/tv/letterkenny-season-12-interview-andrew-herr-tyler-johnston-on-hit-show-ending-potential-spinoffs/  
 

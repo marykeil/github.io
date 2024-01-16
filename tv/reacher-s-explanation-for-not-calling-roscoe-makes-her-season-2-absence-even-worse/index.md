@@ -65,5 +65,5 @@ Reacher season 2 concludes Friday on Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-s-explanation-for-not-calling-roscoe-makes-her-season-2-absence-even-worse/  
+> URL: https://instagram.hk.cn/tv/reacher-s-explanation-for-not-calling-roscoe-makes-her-season-2-absence-even-worse/  
 

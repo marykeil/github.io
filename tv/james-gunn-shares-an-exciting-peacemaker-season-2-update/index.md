@@ -50,5 +50,5 @@ Peacemaker season 1 was released in January 2022. While the series could finish 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/james-gunn-shares-an-exciting-peacemaker-season-2-update/  
+> URL: https://instagram.hk.cn/tv/james-gunn-shares-an-exciting-peacemaker-season-2-update/  
 

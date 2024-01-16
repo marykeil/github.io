@@ -64,5 +64,5 @@ New episodes of Percy Jackson and the Olympians arrive on Disney&#43; Tuesdays a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-jackson-episode-5s-book-altering-god-moment-explained-by-rick-riordan/  
+> URL: https://instagram.hk.cn/tv/percy-jackson-episode-5s-book-altering-god-moment-explained-by-rick-riordan/  
 

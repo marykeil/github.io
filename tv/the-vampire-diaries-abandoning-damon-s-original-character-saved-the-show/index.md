@@ -70,5 +70,5 @@ This transformation allowed the series to redirect its focus on the gradual rebu
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-vampire-diaries-abandoning-damon-s-original-character-saved-the-show/  
+> URL: https://instagram.hk.cn/tv/the-vampire-diaries-abandoning-damon-s-original-character-saved-the-show/  
 

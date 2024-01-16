@@ -55,5 +55,5 @@ Star Trek: Voyager is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-voyager-problems-with-jeri-ryan-are-on-me-says-kate-mulgrew/  
+> URL: https://instagram.hk.cn/tv/star-trek-voyager-problems-with-jeri-ryan-are-on-me-says-kate-mulgrew/  
 

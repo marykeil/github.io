@@ -58,5 +58,5 @@ Getting humbled by adult life and the &#34;real world&#34; is all too familiar f
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gilmore-girls-biggest-rory-complaint-is-the-most-realistic-part-of-the-show/  
+> URL: https://instagram.hk.cn/tv/gilmore-girls-biggest-rory-complaint-is-the-most-realistic-part-of-the-show/  
 

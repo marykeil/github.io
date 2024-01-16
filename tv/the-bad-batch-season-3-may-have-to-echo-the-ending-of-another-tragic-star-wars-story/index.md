@@ -77,5 +77,5 @@ Star Wars: The Bad Batch is available to stream on Disney&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-bad-batch-season-3-may-have-to-echo-the-ending-of-another-tragic-star-wars-story/  
+> URL: https://instagram.hk.cn/tv/the-bad-batch-season-3-may-have-to-echo-the-ending-of-another-tragic-star-wars-story/  
 

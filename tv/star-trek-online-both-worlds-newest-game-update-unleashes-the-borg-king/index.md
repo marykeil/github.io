@@ -60,5 +60,5 @@ Star Trek Online: Both Worlds is available to play on PC on January 23 and on Pl
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-online-both-worlds-newest-game-update-unleashes-the-borg-king/  
+> URL: https://instagram.hk.cn/tv/star-trek-online-both-worlds-newest-game-update-unleashes-the-borg-king/  
 

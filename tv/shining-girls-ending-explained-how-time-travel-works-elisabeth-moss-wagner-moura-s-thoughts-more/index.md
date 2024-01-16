@@ -174,5 +174,5 @@ Sources: Metacritic, Syfy, AV Club
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/shining-girls-ending-explained-how-time-travel-works-elisabeth-moss-wagner-moura-s-thoughts-more/  
+> URL: https://instagram.hk.cn/tv/shining-girls-ending-explained-how-time-travel-works-elisabeth-moss-wagner-moura-s-thoughts-more/  
 

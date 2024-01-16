@@ -66,5 +66,5 @@ It is unclear when Tulsa King season 2 will premiere. However, due to 2023&#39;s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/tulsa-king-commits-the-same-character-sin-that-hurt-another-taylor-sheridan-tv-show/  
+> URL: https://instagram.hk.cn/tv/tulsa-king-commits-the-same-character-sin-that-hurt-another-taylor-sheridan-tv-show/  
 

@@ -53,5 +53,5 @@ Amazon MGM Studios canceled Shelter after just one season, with the final episod
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-s-fool-me-once-popularity-is-a-reminder-to-watch-canceled-amazon-mystery-show-from-last-year/  
+> URL: https://instagram.hk.cn/tv/netflix-s-fool-me-once-popularity-is-a-reminder-to-watch-canceled-amazon-mystery-show-from-last-year/  
 

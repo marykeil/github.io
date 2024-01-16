@@ -47,5 +47,5 @@ The Ahsoka season 2 theory also provides an opportunity to explore Wren&#39;s an
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ezra-bridger-actor-eman-esfandi-has-the-perfect-ahsoka-season-2-theory/  
+> URL: https://instagram.hk.cn/tv/ezra-bridger-actor-eman-esfandi-has-the-perfect-ahsoka-season-2-theory/  
 

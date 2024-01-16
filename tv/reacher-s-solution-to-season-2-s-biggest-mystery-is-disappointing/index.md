@@ -74,5 +74,5 @@ Reacher season 2 drops new episodes every Friday on Amazon Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-s-solution-to-season-2-s-biggest-mystery-is-disappointing/  
+> URL: https://instagram.hk.cn/tv/reacher-s-solution-to-season-2-s-biggest-mystery-is-disappointing/  
 

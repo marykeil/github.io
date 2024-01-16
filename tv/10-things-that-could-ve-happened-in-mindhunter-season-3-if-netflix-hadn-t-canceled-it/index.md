@@ -159,5 +159,5 @@ From executive producers David Fincher and Charlize Theron comes Mindhunter, a s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-things-that-could-ve-happened-in-mindhunter-season-3-if-netflix-hadn-t-canceled-it/  
+> URL: https://instagram.hk.cn/tv/10-things-that-could-ve-happened-in-mindhunter-season-3-if-netflix-hadn-t-canceled-it/  
 

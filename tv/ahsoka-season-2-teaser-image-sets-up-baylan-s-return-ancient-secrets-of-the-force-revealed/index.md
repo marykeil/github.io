@@ -48,5 +48,5 @@ It is also possible that Shin Hati will carry on Baylan&#39;s legacy in Ahsoka s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ahsoka-season-2-teaser-image-sets-up-baylan-s-return-ancient-secrets-of-the-force-revealed/  
+> URL: https://instagram.hk.cn/tv/ahsoka-season-2-teaser-image-sets-up-baylan-s-return-ancient-secrets-of-the-force-revealed/  
 

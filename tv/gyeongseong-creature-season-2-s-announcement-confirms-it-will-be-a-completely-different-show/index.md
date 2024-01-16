@@ -78,5 +78,5 @@ That said, taking the show in a whole new direction through such a massive plot 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gyeongseong-creature-season-2-s-announcement-confirms-it-will-be-a-completely-different-show/  
+> URL: https://instagram.hk.cn/tv/gyeongseong-creature-season-2-s-announcement-confirms-it-will-be-a-completely-different-show/  
 

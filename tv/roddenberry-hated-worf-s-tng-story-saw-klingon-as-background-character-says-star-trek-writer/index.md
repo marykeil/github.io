@@ -50,5 +50,5 @@ Star Trek: The Next Generation is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/roddenberry-hated-worf-s-tng-story-saw-klingon-as-background-character-says-star-trek-writer/  
+> URL: https://instagram.hk.cn/tv/roddenberry-hated-worf-s-tng-story-saw-klingon-as-background-character-says-star-trek-writer/  
 

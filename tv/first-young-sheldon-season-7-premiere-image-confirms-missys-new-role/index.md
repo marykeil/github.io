@@ -56,5 +56,5 @@ Sadly, with the impending death of George, Missy&#39;s redemption arc won&#39;t 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/first-young-sheldon-season-7-premiere-image-confirms-missys-new-role/  
+> URL: https://instagram.hk.cn/tv/first-young-sheldon-season-7-premiere-image-confirms-missys-new-role/  
 

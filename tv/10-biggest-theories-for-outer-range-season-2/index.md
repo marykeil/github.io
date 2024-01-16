@@ -187,5 +187,5 @@ Outer Range is streaming on Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-biggest-theories-for-outer-range-season-2/  
+> URL: https://instagram.hk.cn/tv/10-biggest-theories-for-outer-range-season-2/  
 

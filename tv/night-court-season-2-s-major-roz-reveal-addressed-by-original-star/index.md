@@ -64,5 +64,5 @@ Night Court season 2 airs Tuesdays at 8 p.m. EST on NBC and streams the next day
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/night-court-season-2-s-major-roz-reveal-addressed-by-original-star/  
+> URL: https://instagram.hk.cn/tv/night-court-season-2-s-major-roz-reveal-addressed-by-original-star/  
 

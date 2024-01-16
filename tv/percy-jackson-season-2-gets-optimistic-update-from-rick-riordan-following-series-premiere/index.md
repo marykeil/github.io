@@ -50,5 +50,5 @@ So far, Percy Jackson has become a success for Disney, having brought in 13.3 mi
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-jackson-season-2-gets-optimistic-update-from-rick-riordan-following-series-premiere/  
+> URL: https://instagram.hk.cn/tv/percy-jackson-season-2-gets-optimistic-update-from-rick-riordan-following-series-premiere/  
 

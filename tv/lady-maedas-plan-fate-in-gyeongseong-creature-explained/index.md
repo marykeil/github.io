@@ -103,5 +103,5 @@ Gyeongseong Creature is streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/lady-maedas-plan-fate-in-gyeongseong-creature-explained/  
+> URL: https://instagram.hk.cn/tv/lady-maedas-plan-fate-in-gyeongseong-creature-explained/  
 

@@ -58,5 +58,5 @@ Grand Admiral Thrawn was one of the most well-respected members of the Empire, a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/andor-s-isb-is-secretly-the-foundation-for-the-entire-mandalorian-era/  
+> URL: https://instagram.hk.cn/tv/andor-s-isb-is-secretly-the-foundation-for-the-entire-mandalorian-era/  
 

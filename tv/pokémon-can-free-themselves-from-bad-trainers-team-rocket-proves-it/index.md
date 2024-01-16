@@ -54,5 +54,5 @@ Watch on Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/pok%C3%A9mon-can-free-themselves-from-bad-trainers-team-rocket-proves-it/  
+> URL: https://instagram.hk.cn/tv/pok%C3%A9mon-can-free-themselves-from-bad-trainers-team-rocket-proves-it/  
 

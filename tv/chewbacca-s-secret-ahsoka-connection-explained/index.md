@@ -52,5 +52,5 @@ This was not the only time that Chewbacca fought with a Jedi. He also fought in 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chewbacca-s-secret-ahsoka-connection-explained/  
+> URL: https://instagram.hk.cn/tv/chewbacca-s-secret-ahsoka-connection-explained/  
 

@@ -115,5 +115,5 @@ All 10 episodes of Monarch: Legacy of Monsters season 1 are available to stream 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-season-1-ending-explained-that-titan-cameo-sets-up-a-very-different-season-2/  
+> URL: https://instagram.hk.cn/tv/monarch-season-1-ending-explained-that-titan-cameo-sets-up-a-very-different-season-2/  
 

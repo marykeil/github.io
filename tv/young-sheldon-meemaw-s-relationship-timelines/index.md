@@ -274,5 +274,5 @@ There are talks that season 7 could be Young Sheldon&#39;s last, meaning unless 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-meemaw-s-relationship-timelines/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-meemaw-s-relationship-timelines/  
 

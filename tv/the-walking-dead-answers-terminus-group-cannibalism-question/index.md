@@ -65,5 +65,5 @@ Watch on Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-walking-dead-answers-terminus-group-cannibalism-question/  
+> URL: https://instagram.hk.cn/tv/the-walking-dead-answers-terminus-group-cannibalism-question/  
 

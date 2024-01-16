@@ -122,5 +122,5 @@ This Ronin connection made her the perfect fit for Hawkeye even though she has n
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/echo-cast-story-details-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/echo-cast-story-details-everything-we-know/  
 

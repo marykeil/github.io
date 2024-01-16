@@ -70,5 +70,5 @@ Although Faith’s spinoff series never happened, Faith&#39;s story continued in
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-buffy-the-vampire-slayer-s-faith-spinoff-never-happened-what-it-could-have-covered/  
+> URL: https://instagram.hk.cn/tv/why-buffy-the-vampire-slayer-s-faith-spinoff-never-happened-what-it-could-have-covered/  
 

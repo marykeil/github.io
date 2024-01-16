@@ -57,5 +57,5 @@ Richie&#39;s gift to Jimmy at the end of The Bear season 2 is a sign of Richie&#
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-richie-sends-uncle-jimmy-a-chocolate-banana-in-the-bears-season-2-finale/  
+> URL: https://instagram.hk.cn/tv/why-richie-sends-uncle-jimmy-a-chocolate-banana-in-the-bears-season-2-finale/  
 

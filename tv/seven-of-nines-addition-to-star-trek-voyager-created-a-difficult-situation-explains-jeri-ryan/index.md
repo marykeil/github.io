@@ -55,5 +55,5 @@ Star Trek: Voyager &amp; Star Trek: Picard are available to stream on Paramount&
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/seven-of-nines-addition-to-star-trek-voyager-created-a-difficult-situation-explains-jeri-ryan/  
+> URL: https://instagram.hk.cn/tv/seven-of-nines-addition-to-star-trek-voyager-created-a-difficult-situation-explains-jeri-ryan/  
 

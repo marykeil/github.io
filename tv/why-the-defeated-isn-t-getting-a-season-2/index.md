@@ -60,5 +60,5 @@ Outside the overarching crime story, the biggest questions left in The Defeated 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-the-defeated-isn-t-getting-a-season-2/  
+> URL: https://instagram.hk.cn/tv/why-the-defeated-isn-t-getting-a-season-2/  
 

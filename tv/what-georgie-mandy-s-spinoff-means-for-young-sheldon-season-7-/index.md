@@ -80,5 +80,5 @@ Young Sheldon season 7 premieres on February 15.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-georgie-mandy-s-spinoff-means-for-young-sheldon-season-7-/  
+> URL: https://instagram.hk.cn/tv/what-georgie-mandy-s-spinoff-means-for-young-sheldon-season-7-/  
 

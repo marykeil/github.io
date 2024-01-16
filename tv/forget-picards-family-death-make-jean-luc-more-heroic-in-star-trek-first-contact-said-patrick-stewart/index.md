@@ -62,5 +62,5 @@ Star Trek: First Contact is available to stream on Max &amp; Star Trek: Picard i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/forget-picards-family-death-make-jean-luc-more-heroic-in-star-trek-first-contact-said-patrick-stewart/  
+> URL: https://instagram.hk.cn/tv/forget-picards-family-death-make-jean-luc-more-heroic-in-star-trek-first-contact-said-patrick-stewart/  
 

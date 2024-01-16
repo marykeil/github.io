@@ -98,5 +98,5 @@ The characters in Normal People learn a tough but valuable lesson about doing wh
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/normal-people-ending-explained/  
+> URL: https://instagram.hk.cn/tv/normal-people-ending-explained/  
 

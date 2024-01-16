@@ -105,5 +105,5 @@ There are still a lot of loose ends after The Curse season 1, including the expl
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-curse-ending-explained-what-happened-to-asher-after-that-wild-twist/  
+> URL: https://instagram.hk.cn/tv/the-curse-ending-explained-what-happened-to-asher-after-that-wild-twist/  
 

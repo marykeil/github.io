@@ -57,5 +57,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/yuji-s-best-jujutsu-kaisen-moment-recreated-in-horrifically-awesome-fan-art-/  
+> URL: https://instagram.hk.cn/tv/yuji-s-best-jujutsu-kaisen-moment-recreated-in-horrifically-awesome-fan-art-/  
 

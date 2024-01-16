@@ -109,5 +109,5 @@ To Imperioli, the emotional impact of Christopher&#39;s death didn&#39;t really 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-sopranos-why-tony-killed-christopher-in-season-6/  
+> URL: https://instagram.hk.cn/tv/the-sopranos-why-tony-killed-christopher-in-season-6/  
 

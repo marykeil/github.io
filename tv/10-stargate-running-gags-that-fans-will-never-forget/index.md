@@ -177,5 +177,5 @@ Any Stargate episode directed by Will Waring will likely have a pineapple hidden
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-stargate-running-gags-that-fans-will-never-forget/  
+> URL: https://instagram.hk.cn/tv/10-stargate-running-gags-that-fans-will-never-forget/  
 

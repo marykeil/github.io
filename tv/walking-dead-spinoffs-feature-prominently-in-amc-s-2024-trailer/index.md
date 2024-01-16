@@ -57,5 +57,5 @@ The Walking Dead: The Ones Who Live is scheduled to premiere on February 25, 202
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/walking-dead-spinoffs-feature-prominently-in-amc-s-2024-trailer/  
+> URL: https://instagram.hk.cn/tv/walking-dead-spinoffs-feature-prominently-in-amc-s-2024-trailer/  
 

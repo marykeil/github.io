@@ -70,5 +70,5 @@ Star Trek: The Next Generation &amp; Star Trek: Deep Space Nine are available to
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-s-first-lgbtq&#43;-romance-almost-happened-in-tng-season-2/  
+> URL: https://instagram.hk.cn/tv/star-trek-s-first-lgbtq&#43;-romance-almost-happened-in-tng-season-2/  
 

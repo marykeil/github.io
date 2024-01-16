@@ -59,5 +59,5 @@ Young Sheldon season 7 debuts Thursday, February 15 on CBS.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-spinoff-confirmed-after-series-ends-there-will-be-one-major-difference/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-spinoff-confirmed-after-series-ends-there-will-be-one-major-difference/  
 

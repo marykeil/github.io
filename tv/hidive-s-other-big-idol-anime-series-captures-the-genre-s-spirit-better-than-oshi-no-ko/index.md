@@ -61,5 +61,5 @@ Watch On HIDIVE
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/hidive-s-other-big-idol-anime-series-captures-the-genre-s-spirit-better-than-oshi-no-ko/  
+> URL: https://instagram.hk.cn/tv/hidive-s-other-big-idol-anime-series-captures-the-genre-s-spirit-better-than-oshi-no-ko/  
 

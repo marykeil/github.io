@@ -65,5 +65,5 @@ This would have continued to show how ridiculous and awful the gods truly are, a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-jackson-episode-4-s-echidna-change-doesn-t-fit-with-the-show-s-greek-god-criticisms/  
+> URL: https://instagram.hk.cn/tv/percy-jackson-episode-4-s-echidna-change-doesn-t-fit-with-the-show-s-greek-god-criticisms/  
 

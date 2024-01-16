@@ -56,5 +56,5 @@ Severance season 2 is expected to be released in 2024.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-already-released-a-thrilling-psychological-drama-to-watch-while-waiting-for-severance-season-2/  
+> URL: https://instagram.hk.cn/tv/netflix-already-released-a-thrilling-psychological-drama-to-watch-while-waiting-for-severance-season-2/  
 

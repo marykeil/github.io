@@ -64,5 +64,5 @@ Star Trek: Prodigy season 1 is streaming on Netflix, and Star Trek: Prodigy seas
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigys-ella-purnell-where-youve-seen-heard-gwyn-actress-before-/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigys-ella-purnell-where-youve-seen-heard-gwyn-actress-before-/  
 

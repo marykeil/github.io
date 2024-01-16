@@ -212,5 +212,5 @@ Faster, Purple Worm! Kill! Kill! is on the Dungeons &amp; Dragons Adventures cha
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/faster-purple-worm-kill-kill-interview-david-dastmalchian-on-the-suicide-squad-cast-game-nights/  
+> URL: https://instagram.hk.cn/tv/faster-purple-worm-kill-kill-interview-david-dastmalchian-on-the-suicide-squad-cast-game-nights/  
 

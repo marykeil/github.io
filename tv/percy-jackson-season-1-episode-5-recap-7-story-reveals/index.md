@@ -134,5 +134,5 @@ New episodes of Percy Jackson and the Olympians release every Tuesday on Disney&
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-jackson-season-1-episode-5-recap-7-story-reveals/  
+> URL: https://instagram.hk.cn/tv/percy-jackson-season-1-episode-5-recap-7-story-reveals/  
 

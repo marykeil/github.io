@@ -117,5 +117,5 @@ Gyeongseong Creature is streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gyeongseong-creature-part-2s-ending-that-post-credits-scene-explained/  
+> URL: https://instagram.hk.cn/tv/gyeongseong-creature-part-2s-ending-that-post-credits-scene-explained/  
 

@@ -160,5 +160,5 @@ As good as the 90s cartoon is, the enjoyment of it today still has traces of iro
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-10-spider-man-animated-series-ranked-worst-to-best/  
+> URL: https://instagram.hk.cn/tv/all-10-spider-man-animated-series-ranked-worst-to-best/  
 

@@ -19,5 +19,5 @@ This article contains SPOILERS for Reacher season 2, episode 6, “New York&#39;
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-season-2-actor-responds-to-outpouring-of-affection-after-shocking-episode-6-death/  
+> URL: https://instagram.hk.cn/tv/reacher-season-2-actor-responds-to-outpouring-of-affection-after-shocking-episode-6-death/  
 

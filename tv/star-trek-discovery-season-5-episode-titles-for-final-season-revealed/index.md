@@ -53,5 +53,5 @@ Star Trek: Discovery season 5 premieres in April 2024 on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-discovery-season-5-episode-titles-for-final-season-revealed/  
+> URL: https://instagram.hk.cn/tv/star-trek-discovery-season-5-episode-titles-for-final-season-revealed/  
 

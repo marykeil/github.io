@@ -114,5 +114,5 @@ Watch On Peacock
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-chris-pratt-s-andy-wasn-t-in-all-of-parks-rec-season-6/  
+> URL: https://instagram.hk.cn/tv/why-chris-pratt-s-andy-wasn-t-in-all-of-parks-rec-season-6/  
 

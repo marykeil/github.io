@@ -56,5 +56,5 @@ NBC&#39;s One Chicago returns on January 17, 2023.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chicago-fire-season-12-premiere-details-confirm-some-worst-fears-about-season-11-ending/  
+> URL: https://instagram.hk.cn/tv/chicago-fire-season-12-premiere-details-confirm-some-worst-fears-about-season-11-ending/  
 

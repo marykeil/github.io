@@ -72,5 +72,5 @@ New episodes of Percy Jackson and the Olympians release every Tuesday on Disney&
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/disney-is-already-setting-up-a-percy-jackson-sequel-show-which-means-10-more-seasons/  
+> URL: https://instagram.hk.cn/tv/disney-is-already-setting-up-a-percy-jackson-sequel-show-which-means-10-more-seasons/  
 

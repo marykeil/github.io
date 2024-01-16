@@ -182,5 +182,5 @@ Succession is a Black Comedy and Satire television show created by Jesse Armstro
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/succession-s-10-funniest-tom-cousin-greg-moments-ranked/  
+> URL: https://instagram.hk.cn/tv/succession-s-10-funniest-tom-cousin-greg-moments-ranked/  
 

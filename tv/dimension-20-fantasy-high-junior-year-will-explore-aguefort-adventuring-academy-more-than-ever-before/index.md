@@ -68,5 +68,5 @@ While the previous season dove into each of The Bad Kids trauma and nightmares, 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dimension-20-fantasy-high-junior-year-will-explore-aguefort-adventuring-academy-more-than-ever-before/  
+> URL: https://instagram.hk.cn/tv/dimension-20-fantasy-high-junior-year-will-explore-aguefort-adventuring-academy-more-than-ever-before/  
 

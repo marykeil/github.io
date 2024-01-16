@@ -184,5 +184,5 @@ In the second part of Ted’s pilot episode, to convince Matty to give Blaire a 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-funniest-quotes-from-the-ted-prequel-show/  
+> URL: https://instagram.hk.cn/tv/10-funniest-quotes-from-the-ted-prequel-show/  
 

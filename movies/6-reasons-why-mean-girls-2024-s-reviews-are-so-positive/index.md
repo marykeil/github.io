@@ -86,5 +86,5 @@ While the 2024 version of Mean Girls has been lambasted for having weak musical 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/movies/6-reasons-why-mean-girls-2024-s-reviews-are-so-positive/  
+> URL: https://instagram.hk.cn/movies/6-reasons-why-mean-girls-2024-s-reviews-are-so-positive/  
 

@@ -60,5 +60,5 @@ Of course, Monarch: Legacy of Monsters&#39; reveal that the blue energy source i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/godzilla-s-power-turning-pink-makes-more-sense-now-thanks-to-monarch-s-show/  
+> URL: https://instagram.hk.cn/tv/godzilla-s-power-turning-pink-makes-more-sense-now-thanks-to-monarch-s-show/  
 

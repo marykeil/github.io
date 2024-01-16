@@ -74,5 +74,5 @@ Watch On Max
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/smiling-friends-season-2-confirmed-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/smiling-friends-season-2-confirmed-everything-we-know/  
 

@@ -61,5 +61,5 @@ It would be especially sad for her to say goodbye to Wally since the two had som
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/school-spirits-janet-twist-hints-at-what-s-next-for-maddie-her-dead-body/  
+> URL: https://instagram.hk.cn/tv/school-spirits-janet-twist-hints-at-what-s-next-for-maddie-her-dead-body/  
 

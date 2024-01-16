@@ -77,5 +77,5 @@ The Atlas Six will also need to take an unflinching approach to its more mature 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/a-9-year-old-syfy-series-can-be-the-blueprint-for-amazon-s-atlas-six-adaptation/  
+> URL: https://instagram.hk.cn/tv/a-9-year-old-syfy-series-can-be-the-blueprint-for-amazon-s-atlas-six-adaptation/  
 

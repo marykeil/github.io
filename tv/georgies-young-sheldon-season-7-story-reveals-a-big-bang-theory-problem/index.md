@@ -89,5 +89,5 @@ Young Sheldon already has a way to bring back The Big Bang Theory’s main chara
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/georgies-young-sheldon-season-7-story-reveals-a-big-bang-theory-problem/  
+> URL: https://instagram.hk.cn/tv/georgies-young-sheldon-season-7-story-reveals-a-big-bang-theory-problem/  
 

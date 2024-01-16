@@ -50,5 +50,5 @@ Between Fool Me Once and the other adaptations in the works, it seems that 2024 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/fool-me-once-writer-confirms-2-new-netflix-adaptations-in-development/  
+> URL: https://instagram.hk.cn/tv/fool-me-once-writer-confirms-2-new-netflix-adaptations-in-development/  
 

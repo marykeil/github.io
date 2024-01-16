@@ -58,5 +58,5 @@ All of Us Are Dead will also have to reinvent itself, as the show’s premise of
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/3-of-netflixs-most-successful-k-dramas-ever-may-all-get-new-seasons-in-2024/  
+> URL: https://instagram.hk.cn/tv/3-of-netflixs-most-successful-k-dramas-ever-may-all-get-new-seasons-in-2024/  
 

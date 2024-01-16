@@ -187,5 +187,5 @@ The Flash series finale makes many seasons pointless, considering how easily Tea
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-flash-10-weirdest-stories-across-all-9-seasons-/  
+> URL: https://instagram.hk.cn/tv/the-flash-10-weirdest-stories-across-all-9-seasons-/  
 

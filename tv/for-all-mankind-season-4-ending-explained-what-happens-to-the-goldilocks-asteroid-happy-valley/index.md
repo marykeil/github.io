@@ -124,5 +124,5 @@ All episodes of For All Mankind are streaming now on AppleTV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/for-all-mankind-season-4-ending-explained-what-happens-to-the-goldilocks-asteroid-happy-valley/  
+> URL: https://instagram.hk.cn/tv/for-all-mankind-season-4-ending-explained-what-happens-to-the-goldilocks-asteroid-happy-valley/  
 

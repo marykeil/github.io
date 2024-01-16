@@ -66,5 +66,5 @@ To take this premise further, Young Sheldon season 7 could even lean on the four
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-tragic-big-bang-theory-detail-set-up-young-sheldon-season-7s-saddest-story/  
+> URL: https://instagram.hk.cn/tv/one-tragic-big-bang-theory-detail-set-up-young-sheldon-season-7s-saddest-story/  
 

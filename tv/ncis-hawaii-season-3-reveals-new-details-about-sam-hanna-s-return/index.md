@@ -47,5 +47,5 @@ While characters have returned to the NCIS franchise before, it will be interest
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ncis-hawaii-season-3-reveals-new-details-about-sam-hanna-s-return/  
+> URL: https://instagram.hk.cn/tv/ncis-hawaii-season-3-reveals-new-details-about-sam-hanna-s-return/  
 

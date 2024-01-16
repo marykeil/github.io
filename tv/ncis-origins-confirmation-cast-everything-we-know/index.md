@@ -64,5 +64,5 @@ The basic framework of NCIS: Origins has already been revealed, and it will foll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ncis-origins-confirmation-cast-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/ncis-origins-confirmation-cast-everything-we-know/  
 

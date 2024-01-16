@@ -161,5 +161,5 @@ One final friends-to-lovers k-drama to watch is a classic of the genre. Somethin
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-friends-to-lovers-k-dramas/  
+> URL: https://instagram.hk.cn/tv/10-best-friends-to-lovers-k-dramas/  
 

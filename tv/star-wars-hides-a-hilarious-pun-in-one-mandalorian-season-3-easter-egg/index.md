@@ -56,5 +56,5 @@ The Mandalorian can be a very serious series at times, but it is also filled wit
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-hides-a-hilarious-pun-in-one-mandalorian-season-3-easter-egg/  
+> URL: https://instagram.hk.cn/tv/star-wars-hides-a-hilarious-pun-in-one-mandalorian-season-3-easter-egg/  
 

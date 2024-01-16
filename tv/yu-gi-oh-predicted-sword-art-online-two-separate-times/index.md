@@ -57,5 +57,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/yu-gi-oh-predicted-sword-art-online-two-separate-times/  
+> URL: https://instagram.hk.cn/tv/yu-gi-oh-predicted-sword-art-online-two-separate-times/  
 

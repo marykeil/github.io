@@ -65,5 +65,5 @@ Season 1 also links the past to the present, with the Randa children following i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monsterverse-show-revives-a-forgotten-titan-tease-5-years-later/  
+> URL: https://instagram.hk.cn/tv/monsterverse-show-revives-a-forgotten-titan-tease-5-years-later/  
 

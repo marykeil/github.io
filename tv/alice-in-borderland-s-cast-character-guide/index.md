@@ -137,5 +137,5 @@ Alice in Borderland is streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/alice-in-borderland-s-cast-character-guide/  
+> URL: https://instagram.hk.cn/tv/alice-in-borderland-s-cast-character-guide/  
 

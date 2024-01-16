@@ -52,5 +52,5 @@ Furthermore, focusing on Thor&#39;s past before the MCU may have been redundant.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/loki-season-2-s-big-thor-change-came-1-year-too-late-for-the-mcu/  
+> URL: https://instagram.hk.cn/tv/loki-season-2-s-big-thor-change-came-1-year-too-late-for-the-mcu/  
 

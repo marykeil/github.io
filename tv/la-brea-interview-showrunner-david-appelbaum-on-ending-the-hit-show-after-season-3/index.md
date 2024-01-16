@@ -132,5 +132,5 @@ La Brea season 3 premieres Tuesday, January 9 at 9pm ET on NBC and is available 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/la-brea-interview-showrunner-david-appelbaum-on-ending-the-hit-show-after-season-3/  
+> URL: https://instagram.hk.cn/tv/la-brea-interview-showrunner-david-appelbaum-on-ending-the-hit-show-after-season-3/  
 

@@ -52,5 +52,5 @@ NCIS is poised to dig deeper into Torres&#39; history with the premiere. It&#39;
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ncis-season-21-premiere-synopsis-previews-what-s-next-after-torres-cliffhanger/  
+> URL: https://instagram.hk.cn/tv/ncis-season-21-premiere-synopsis-previews-what-s-next-after-torres-cliffhanger/  
 

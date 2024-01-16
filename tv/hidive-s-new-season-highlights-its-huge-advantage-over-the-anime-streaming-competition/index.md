@@ -55,5 +55,5 @@ Watch On HIDIVE
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/hidive-s-new-season-highlights-its-huge-advantage-over-the-anime-streaming-competition/  
+> URL: https://instagram.hk.cn/tv/hidive-s-new-season-highlights-its-huge-advantage-over-the-anime-streaming-competition/  
 

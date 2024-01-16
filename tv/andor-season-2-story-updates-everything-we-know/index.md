@@ -94,5 +94,5 @@ This could lead to big moments known to come from Mon Mothma in Andor season 2. 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/andor-season-2-story-updates-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/andor-season-2-story-updates-everything-we-know/  
 

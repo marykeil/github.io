@@ -124,5 +124,5 @@ Armand Truisi was loyal to Dwight in New York even though he wasn&#39;t aware of
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/tulsa-king-8-things-we-want-to-happen-in-season-2/  
+> URL: https://instagram.hk.cn/tv/tulsa-king-8-things-we-want-to-happen-in-season-2/  
 

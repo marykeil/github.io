@@ -56,5 +56,5 @@ Additionally, Wednesday&#39;s piranha stunt as revenge against Pugsley&#39;s bul
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dont-get-your-hopes-up-for-more-of-the-addams-family-in-wednesday-season-2/  
+> URL: https://instagram.hk.cn/tv/dont-get-your-hopes-up-for-more-of-the-addams-family-in-wednesday-season-2/  
 

@@ -185,5 +185,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-ghibli-like-anime-series-every-miyazaki-fan-needs-to-watch/  
+> URL: https://instagram.hk.cn/tv/10-best-ghibli-like-anime-series-every-miyazaki-fan-needs-to-watch/  
 

@@ -166,5 +166,5 @@ All episodes of School Spirits are currently available to stream on Paramount&#4
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/school-spirits-interview-kristian-ventura-on-the-finale-s-major-twist-his-season-2-theories/  
+> URL: https://instagram.hk.cn/tv/school-spirits-interview-kristian-ventura-on-the-finale-s-major-twist-his-season-2-theories/  
 

@@ -61,5 +61,5 @@ A flashback in Yellowstone season 4 shows James Dutton tacking down and killing 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/yellowstone-what-wade-stole-from-john-dutton-explained/  
+> URL: https://instagram.hk.cn/tv/yellowstone-what-wade-stole-from-john-dutton-explained/  
 

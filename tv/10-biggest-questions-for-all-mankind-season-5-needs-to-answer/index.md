@@ -192,5 +192,5 @@ All episodes of For All Mankind are streaming now on AppleTV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-biggest-questions-for-all-mankind-season-5-needs-to-answer/  
+> URL: https://instagram.hk.cn/tv/10-biggest-questions-for-all-mankind-season-5-needs-to-answer/  
 

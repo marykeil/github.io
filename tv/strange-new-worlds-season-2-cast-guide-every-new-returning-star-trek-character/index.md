@@ -371,5 +371,5 @@ Star Trek: Strange New Worlds is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/strange-new-worlds-season-2-cast-guide-every-new-returning-star-trek-character/  
+> URL: https://instagram.hk.cn/tv/strange-new-worlds-season-2-cast-guide-every-new-returning-star-trek-character/  
 

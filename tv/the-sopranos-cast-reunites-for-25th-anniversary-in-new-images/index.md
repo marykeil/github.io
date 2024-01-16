@@ -75,5 +75,5 @@ The Sopranos seasons 1-6 are streaming on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-sopranos-cast-reunites-for-25th-anniversary-in-new-images/  
+> URL: https://instagram.hk.cn/tv/the-sopranos-cast-reunites-for-25th-anniversary-in-new-images/  
 

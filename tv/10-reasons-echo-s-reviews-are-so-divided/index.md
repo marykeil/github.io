@@ -196,5 +196,5 @@ Despite its polarizing reviews, Echo&#39;s lead actor Alaqua Cox is being near-u
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-reasons-echo-s-reviews-are-so-divided/  
+> URL: https://instagram.hk.cn/tv/10-reasons-echo-s-reviews-are-so-divided/  
 

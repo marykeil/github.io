@@ -63,5 +63,5 @@ Star Trek: Voyager   Release Date   May 23, 1995    Cast   Kate Mulgrew , Robert
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1-polarizing-star-trek-voyager-character-was-saved-by-scheduling-issues/  
+> URL: https://instagram.hk.cn/tv/1-polarizing-star-trek-voyager-character-was-saved-by-scheduling-issues/  
 

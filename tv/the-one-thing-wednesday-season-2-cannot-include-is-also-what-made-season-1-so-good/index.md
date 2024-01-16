@@ -57,5 +57,5 @@ Although Wednesday moved away from the setting and premise that made The Addams 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-one-thing-wednesday-season-2-cannot-include-is-also-what-made-season-1-so-good/  
+> URL: https://instagram.hk.cn/tv/the-one-thing-wednesday-season-2-cannot-include-is-also-what-made-season-1-so-good/  
 

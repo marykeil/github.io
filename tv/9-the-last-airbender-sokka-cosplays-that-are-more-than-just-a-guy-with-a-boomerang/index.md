@@ -119,5 +119,5 @@ Sokka is the established jokester of the Gaang in Avatar: The Last Airbender. So
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/9-the-last-airbender-sokka-cosplays-that-are-more-than-just-a-guy-with-a-boomerang/  
+> URL: https://instagram.hk.cn/tv/9-the-last-airbender-sokka-cosplays-that-are-more-than-just-a-guy-with-a-boomerang/  
 

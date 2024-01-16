@@ -59,5 +59,5 @@ While season 3 was announced in July 2022, there is currently no official releas
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-wheel-of-time-nynaeve-actor-details-filming-season-2-s-climactic-two-rivers-reunion/  
+> URL: https://instagram.hk.cn/tv/the-wheel-of-time-nynaeve-actor-details-filming-season-2-s-climactic-two-rivers-reunion/  
 

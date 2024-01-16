@@ -57,5 +57,5 @@ While Buffy the Vampire Slayer’s most powerful villains could kill countless c
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-1-supernatural-episode-that-was-directly-inspired-by-buffy-the-vampire-slayer/  
+> URL: https://instagram.hk.cn/tv/the-1-supernatural-episode-that-was-directly-inspired-by-buffy-the-vampire-slayer/  
 

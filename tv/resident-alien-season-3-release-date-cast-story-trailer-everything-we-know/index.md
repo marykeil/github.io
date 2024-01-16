@@ -105,5 +105,5 @@ The trailer for Resident Alien season 3 was released in January 2024, and it off
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/resident-alien-season-3-release-date-cast-story-trailer-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/resident-alien-season-3-release-date-cast-story-trailer-everything-we-know/  
 

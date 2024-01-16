@@ -67,5 +67,5 @@ The Last of Us season 2 story details reveal that some parts of season 2 will ex
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-last-of-us-season-2-new-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/the-last-of-us-season-2-new-cast-story-everything-we-know/  
 

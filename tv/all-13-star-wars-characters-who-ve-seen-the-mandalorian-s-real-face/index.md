@@ -216,5 +216,5 @@ With such a large group standing behind Din on Moff Gideon&#39;s bridge, it can 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-13-star-wars-characters-who-ve-seen-the-mandalorian-s-real-face/  
+> URL: https://instagram.hk.cn/tv/all-13-star-wars-characters-who-ve-seen-the-mandalorian-s-real-face/  
 

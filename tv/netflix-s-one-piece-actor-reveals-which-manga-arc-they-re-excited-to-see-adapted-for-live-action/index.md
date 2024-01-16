@@ -57,5 +57,5 @@ Besides the tragedy of losing the Going Merry, Enies Lobby sees the Straw Hats b
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-s-one-piece-actor-reveals-which-manga-arc-they-re-excited-to-see-adapted-for-live-action/  
+> URL: https://instagram.hk.cn/tv/netflix-s-one-piece-actor-reveals-which-manga-arc-they-re-excited-to-see-adapted-for-live-action/  
 

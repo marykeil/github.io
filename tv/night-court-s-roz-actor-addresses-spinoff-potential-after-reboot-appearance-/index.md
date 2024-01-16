@@ -67,5 +67,5 @@ Night Court airs Tuesdays at 8 p.m. EST on NBC and streams the next day on Peaco
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/night-court-s-roz-actor-addresses-spinoff-potential-after-reboot-appearance-/  
+> URL: https://instagram.hk.cn/tv/night-court-s-roz-actor-addresses-spinoff-potential-after-reboot-appearance-/  
 

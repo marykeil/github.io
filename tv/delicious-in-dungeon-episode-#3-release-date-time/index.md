@@ -59,5 +59,5 @@ Watch On Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/delicious-in-dungeon-episode-#3-release-date-time/  
+> URL: https://instagram.hk.cn/tv/delicious-in-dungeon-episode-#3-release-date-time/  
 

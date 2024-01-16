@@ -97,5 +97,5 @@ As for how it could make use of her, Sam Lawrence provides the show with a great
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/7-exciting-character-team-ups-that-still-need-to-happen-before-cobra-kai-ends/  
+> URL: https://instagram.hk.cn/tv/7-exciting-character-team-ups-that-still-need-to-happen-before-cobra-kai-ends/  
 

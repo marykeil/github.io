@@ -62,5 +62,5 @@ Monarch: Legacy of Monsters’ season finale arrives on Apple TV&#43; Friday, Ja
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-legacy-of-monsters-season-2-update-given-by-showrunner-/  
+> URL: https://instagram.hk.cn/tv/monarch-legacy-of-monsters-season-2-update-given-by-showrunner-/  
 

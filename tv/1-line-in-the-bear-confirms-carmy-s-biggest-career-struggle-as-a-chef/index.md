@@ -48,5 +48,5 @@ The Bear   Cast:   Jeremy Allen White, Ebon Moss-Bachrach, Ayo Edebiri, Lionel B
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1-line-in-the-bear-confirms-carmy-s-biggest-career-struggle-as-a-chef/  
+> URL: https://instagram.hk.cn/tv/1-line-in-the-bear-confirms-carmy-s-biggest-career-struggle-as-a-chef/  
 

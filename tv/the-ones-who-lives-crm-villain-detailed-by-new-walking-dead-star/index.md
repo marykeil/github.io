@@ -55,5 +55,5 @@ The Walking Dead: The Ones Who Live begins on AMC and AMC&#43; February 25, 2024
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-ones-who-lives-crm-villain-detailed-by-new-walking-dead-star/  
+> URL: https://instagram.hk.cn/tv/the-ones-who-lives-crm-villain-detailed-by-new-walking-dead-star/  
 

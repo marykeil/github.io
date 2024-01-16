@@ -56,5 +56,5 @@ Schur&#39;s approach to The Good Place worked out in the show&#39;s favor, as El
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1-detail-made-the-good-place-season-1s-iconic-plot-twist-even-better/  
+> URL: https://instagram.hk.cn/tv/1-detail-made-the-good-place-season-1s-iconic-plot-twist-even-better/  
 

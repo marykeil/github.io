@@ -101,5 +101,5 @@ Though Perry continued a treatment plan that involved measured amounts of bupren
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-chandler-went-to-tulsa-in-friends-season-9/  
+> URL: https://instagram.hk.cn/tv/why-chandler-went-to-tulsa-in-friends-season-9/  
 

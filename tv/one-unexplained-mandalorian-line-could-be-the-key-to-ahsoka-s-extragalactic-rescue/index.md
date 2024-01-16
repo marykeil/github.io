@@ -73,5 +73,5 @@ Ezra Bridger has worked with Bo-Katan Kryze before, most notably in Star Wars Re
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-unexplained-mandalorian-line-could-be-the-key-to-ahsoka-s-extragalactic-rescue/  
+> URL: https://instagram.hk.cn/tv/one-unexplained-mandalorian-line-could-be-the-key-to-ahsoka-s-extragalactic-rescue/  
 

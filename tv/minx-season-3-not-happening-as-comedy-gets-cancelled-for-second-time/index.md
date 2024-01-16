@@ -45,5 +45,5 @@ The ratings failure of Minx season 2 was indeed an unlucky blow, as the show’s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/minx-season-3-not-happening-as-comedy-gets-cancelled-for-second-time/  
+> URL: https://instagram.hk.cn/tv/minx-season-3-not-happening-as-comedy-gets-cancelled-for-second-time/  
 

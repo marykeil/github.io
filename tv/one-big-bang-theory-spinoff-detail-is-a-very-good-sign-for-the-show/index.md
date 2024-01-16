@@ -95,5 +95,5 @@ Lorre&#39;s comment on The Big Bang Theory spinoff is intriguingly reserved, ind
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-big-bang-theory-spinoff-detail-is-a-very-good-sign-for-the-show/  
+> URL: https://instagram.hk.cn/tv/one-big-bang-theory-spinoff-detail-is-a-very-good-sign-for-the-show/  
 

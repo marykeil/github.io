@@ -50,5 +50,5 @@ All episodes of Ted are now streaming on Peacock.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-tv-show-rotten-tomatoes-score-breaks-franchise-record/  
+> URL: https://instagram.hk.cn/tv/ted-tv-show-rotten-tomatoes-score-breaks-franchise-record/  
 

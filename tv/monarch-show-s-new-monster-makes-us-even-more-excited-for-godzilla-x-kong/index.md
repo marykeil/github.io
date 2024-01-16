@@ -67,5 +67,5 @@ Monarch: Legacy of Monsters releases new episodes on Apple TV&#43; on Fridays.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-show-s-new-monster-makes-us-even-more-excited-for-godzilla-x-kong/  
+> URL: https://instagram.hk.cn/tv/monarch-show-s-new-monster-makes-us-even-more-excited-for-godzilla-x-kong/  
 

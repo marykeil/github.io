@@ -51,5 +51,5 @@ Franks and Strickland&#39;s bigger role in the NCIS Gibbs prequel could change h
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ncis-gibbs-prequel-is-missing-one-original-character-better-than-vera-franks/  
+> URL: https://instagram.hk.cn/tv/ncis-gibbs-prequel-is-missing-one-original-character-better-than-vera-franks/  
 

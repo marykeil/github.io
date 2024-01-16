@@ -56,5 +56,5 @@ Watch On Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/pok%C3%A9mons-anime-makes-a-streaming-change-that-hints-at-something-big/  
+> URL: https://instagram.hk.cn/tv/pok%C3%A9mons-anime-makes-a-streaming-change-that-hints-at-something-big/  
 

@@ -56,5 +56,5 @@ All episodes of The Bear are available on Hulu.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/carmy-claire-s-future-in-the-bear-season-3-teased-by-jeremy-allen-white/  
+> URL: https://instagram.hk.cn/tv/carmy-claire-s-future-in-the-bear-season-3-teased-by-jeremy-allen-white/  
 

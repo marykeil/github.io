@@ -67,5 +67,5 @@ Watch On Crunchyroll!
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/my-hero-academia-season-7-story-characters-everything-we-know-so-far/  
+> URL: https://instagram.hk.cn/tv/my-hero-academia-season-7-story-characters-everything-we-know-so-far/  
 

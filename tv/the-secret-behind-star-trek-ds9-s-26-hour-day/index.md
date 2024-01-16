@@ -62,5 +62,5 @@ Star Trek: Deep Space Nine is streaming on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-secret-behind-star-trek-ds9-s-26-hour-day/  
+> URL: https://instagram.hk.cn/tv/the-secret-behind-star-trek-ds9-s-26-hour-day/  
 

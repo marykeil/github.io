@@ -203,5 +203,5 @@ Watch Now On HIDIVE
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-most-broken-shonen-anime-powers/  
+> URL: https://instagram.hk.cn/tv/10-most-broken-shonen-anime-powers/  
 

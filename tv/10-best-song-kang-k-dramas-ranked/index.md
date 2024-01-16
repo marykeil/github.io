@@ -187,5 +187,5 @@ Streaming on: Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-song-kang-k-dramas-ranked/  
+> URL: https://instagram.hk.cn/tv/10-best-song-kang-k-dramas-ranked/  
 

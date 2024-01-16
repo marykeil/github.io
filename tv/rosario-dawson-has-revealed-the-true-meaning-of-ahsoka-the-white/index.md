@@ -73,5 +73,5 @@ Now that Ahsoka is a true Jedi, her story will become that much more exciting in
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/rosario-dawson-has-revealed-the-true-meaning-of-ahsoka-the-white/  
+> URL: https://instagram.hk.cn/tv/rosario-dawson-has-revealed-the-true-meaning-of-ahsoka-the-white/  
 

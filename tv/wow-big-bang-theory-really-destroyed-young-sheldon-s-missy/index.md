@@ -67,5 +67,5 @@ In season 6, Missy works hard to convince Sheldon to never give up hope and acce
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/wow-big-bang-theory-really-destroyed-young-sheldon-s-missy/  
+> URL: https://instagram.hk.cn/tv/wow-big-bang-theory-really-destroyed-young-sheldon-s-missy/  
 

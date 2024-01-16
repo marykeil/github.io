@@ -79,5 +79,5 @@ A spinoff of the sitcom The Big Bang Theory, Young Sheldon follows the youth and
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/4-the-big-bang-theory-stories-that-young-sheldon-s-georgie-spinoff-need-to-tell/  
+> URL: https://instagram.hk.cn/tv/4-the-big-bang-theory-stories-that-young-sheldon-s-georgie-spinoff-need-to-tell/  
 

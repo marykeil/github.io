@@ -194,5 +194,5 @@ All eight seasons of Fear The Walking Dead are available on AMC and AMC&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/most-impactful-death-in-each-season-of-fear-the-walking-dead/  
+> URL: https://instagram.hk.cn/tv/most-impactful-death-in-each-season-of-fear-the-walking-dead/  
 

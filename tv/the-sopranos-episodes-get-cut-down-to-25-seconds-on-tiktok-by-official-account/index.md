@@ -52,5 +52,5 @@ The Sopranos is streaming on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-sopranos-episodes-get-cut-down-to-25-seconds-on-tiktok-by-official-account/  
+> URL: https://instagram.hk.cn/tv/the-sopranos-episodes-get-cut-down-to-25-seconds-on-tiktok-by-official-account/  
 

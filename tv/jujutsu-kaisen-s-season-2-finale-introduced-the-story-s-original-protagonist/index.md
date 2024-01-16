@@ -64,5 +64,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/jujutsu-kaisen-s-season-2-finale-introduced-the-story-s-original-protagonist/  
+> URL: https://instagram.hk.cn/tv/jujutsu-kaisen-s-season-2-finale-introduced-the-story-s-original-protagonist/  
 

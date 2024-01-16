@@ -54,5 +54,5 @@ The next entry in the franchise, The Walking Dead: The Ones Who Live, follows an
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-walking-dead-creator-reveals-what-a-faithful-comic-adaptation-should-look-like/  
+> URL: https://instagram.hk.cn/tv/the-walking-dead-creator-reveals-what-a-faithful-comic-adaptation-should-look-like/  
 

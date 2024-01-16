@@ -60,5 +60,5 @@ Star Trek: Voyager is streaming on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/roddenberrys-feelings-on-star-trek-female-captains-explained-by-voyager-executive-producer/  
+> URL: https://instagram.hk.cn/tv/roddenberrys-feelings-on-star-trek-female-captains-explained-by-voyager-executive-producer/  
 

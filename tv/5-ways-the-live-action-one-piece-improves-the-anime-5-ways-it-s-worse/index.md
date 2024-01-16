@@ -126,5 +126,5 @@ Nami’s backstory is an essential part of the character, and it is impossible t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/5-ways-the-live-action-one-piece-improves-the-anime-5-ways-it-s-worse/  
+> URL: https://instagram.hk.cn/tv/5-ways-the-live-action-one-piece-improves-the-anime-5-ways-it-s-worse/  
 

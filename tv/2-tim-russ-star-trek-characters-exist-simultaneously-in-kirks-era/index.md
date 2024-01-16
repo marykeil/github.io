@@ -65,5 +65,5 @@ All episodes of Star Trek: Voyager are streaming on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/2-tim-russ-star-trek-characters-exist-simultaneously-in-kirks-era/  
+> URL: https://instagram.hk.cn/tv/2-tim-russ-star-trek-characters-exist-simultaneously-in-kirks-era/  
 

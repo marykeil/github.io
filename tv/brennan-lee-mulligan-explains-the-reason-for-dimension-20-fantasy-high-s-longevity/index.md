@@ -64,5 +64,5 @@ Setting the core of this story in a high school allows the world of Fantasy High
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/brennan-lee-mulligan-explains-the-reason-for-dimension-20-fantasy-high-s-longevity/  
+> URL: https://instagram.hk.cn/tv/brennan-lee-mulligan-explains-the-reason-for-dimension-20-fantasy-high-s-longevity/  
 

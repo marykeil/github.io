@@ -100,5 +100,5 @@ Likely one of the trickiest avenues that Supernatural could go down to continue 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-ways-supernatural-can-continue-after-its-season-15-ending/  
+> URL: https://instagram.hk.cn/tv/8-ways-supernatural-can-continue-after-its-season-15-ending/  
 

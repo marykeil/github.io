@@ -275,5 +275,5 @@ One of the most unlikable minor villains in The Walking Dead, Gregory is Hilltop
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/every-major-walking-dead-character-who-died-before-the-end/  
+> URL: https://instagram.hk.cn/tv/every-major-walking-dead-character-who-died-before-the-end/  
 

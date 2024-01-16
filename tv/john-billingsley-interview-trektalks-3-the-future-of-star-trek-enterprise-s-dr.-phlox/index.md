@@ -228,5 +228,5 @@ Trek Geeks website: https://trekgeeks.com
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/john-billingsley-interview-trektalks-3-the-future-of-star-trek-enterprise-s-dr.-phlox/  
+> URL: https://instagram.hk.cn/tv/john-billingsley-interview-trektalks-3-the-future-of-star-trek-enterprise-s-dr.-phlox/  
 

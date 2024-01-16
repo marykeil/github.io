@@ -118,5 +118,5 @@ CSI: Crime Scene Investigation, CSI: Miami, CSI: NY, and CSI: Vegas are availabl
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-most-tragic-csi-deaths-ranked/  
+> URL: https://instagram.hk.cn/tv/8-most-tragic-csi-deaths-ranked/  
 

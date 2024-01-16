@@ -56,5 +56,5 @@ Star Trek: Prodigy season 1 is available to stream on Netflix. Star Trek: The Ne
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigy-shows-an-enterprise-d-feature-30-years-after-tng-never-did/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigy-shows-an-enterprise-d-feature-30-years-after-tng-never-did/  
 

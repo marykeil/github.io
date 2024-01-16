@@ -66,5 +66,5 @@ Watch Now On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/crunchyrolls-first-new-isekai-of-2024-is-ridiculous-but-promising/  
+> URL: https://instagram.hk.cn/tv/crunchyrolls-first-new-isekai-of-2024-is-ridiculous-but-promising/  
 

@@ -112,5 +112,5 @@ Sources: Rolling Stone, Us Weekly
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gilmore-girls-creator-already-confirmed-another-revival-would-fix-the-show-s-biggest-mistake-17-years-later/  
+> URL: https://instagram.hk.cn/tv/gilmore-girls-creator-already-confirmed-another-revival-would-fix-the-show-s-biggest-mistake-17-years-later/  
 

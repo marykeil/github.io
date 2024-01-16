@@ -40,5 +40,5 @@ Other [*Smile* cast members ](https://screenrant.com/smile-cast-character-guide/
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/movies/smile-2-bringing-back-an-original-star-in-latest-casting-update/  
+> URL: https://instagram.hk.cn/movies/smile-2-bringing-back-an-original-star-in-latest-casting-update/  
 

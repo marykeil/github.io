@@ -183,5 +183,5 @@ Aminah Nieves, who plays Teonna Rainwater, has hopes for Teonna in 1923 season 2
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1923-season-2-wishlist-10-things-we-want-to-see/  
+> URL: https://instagram.hk.cn/tv/1923-season-2-wishlist-10-things-we-want-to-see/  
 

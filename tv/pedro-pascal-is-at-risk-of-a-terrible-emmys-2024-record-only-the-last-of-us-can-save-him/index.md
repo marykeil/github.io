@@ -67,5 +67,5 @@ The Last of Us season 1 is available to stream on Max. The Last of Us season 2 h
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/pedro-pascal-is-at-risk-of-a-terrible-emmys-2024-record-only-the-last-of-us-can-save-him/  
+> URL: https://instagram.hk.cn/tv/pedro-pascal-is-at-risk-of-a-terrible-emmys-2024-record-only-the-last-of-us-can-save-him/  
 

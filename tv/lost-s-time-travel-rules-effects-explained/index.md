@@ -96,5 +96,5 @@ Although time travel in Lost can&#39;t change the future, it does seem to influe
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/lost-s-time-travel-rules-effects-explained/  
+> URL: https://instagram.hk.cn/tv/lost-s-time-travel-rules-effects-explained/  
 

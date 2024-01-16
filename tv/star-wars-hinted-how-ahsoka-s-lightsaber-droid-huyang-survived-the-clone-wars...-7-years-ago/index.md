@@ -52,5 +52,5 @@ If Huyang was with the ExplorCorps, he and Ahsoka could run into more Jedi who s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-hinted-how-ahsoka-s-lightsaber-droid-huyang-survived-the-clone-wars...-7-years-ago/  
+> URL: https://instagram.hk.cn/tv/star-wars-hinted-how-ahsoka-s-lightsaber-droid-huyang-survived-the-clone-wars...-7-years-ago/  
 

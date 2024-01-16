@@ -188,5 +188,5 @@ Watch On Netflix
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-gainax-endings-in-anime-history/  
+> URL: https://instagram.hk.cn/tv/10-best-gainax-endings-in-anime-history/  
 

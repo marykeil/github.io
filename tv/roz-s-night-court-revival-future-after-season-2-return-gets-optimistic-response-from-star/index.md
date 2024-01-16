@@ -54,5 +54,5 @@ The Night Court revival has already proven its willingness to honor legacy chara
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/roz-s-night-court-revival-future-after-season-2-return-gets-optimistic-response-from-star/  
+> URL: https://instagram.hk.cn/tv/roz-s-night-court-revival-future-after-season-2-return-gets-optimistic-response-from-star/  
 

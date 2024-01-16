@@ -56,5 +56,5 @@ Malek&#39;s character&#39;s nickname &#34;Snafu&#34; also references a military 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-rami-malek-s-the-pacific-character-is-nicknamed-snafu/  
+> URL: https://instagram.hk.cn/tv/why-rami-malek-s-the-pacific-character-is-nicknamed-snafu/  
 

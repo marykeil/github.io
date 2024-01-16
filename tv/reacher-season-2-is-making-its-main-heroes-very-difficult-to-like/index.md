@@ -84,5 +84,5 @@ Reacher season 2 concludes Friday on Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-season-2-is-making-its-main-heroes-very-difficult-to-like/  
+> URL: https://instagram.hk.cn/tv/reacher-season-2-is-making-its-main-heroes-very-difficult-to-like/  
 

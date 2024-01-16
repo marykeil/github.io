@@ -61,5 +61,5 @@ For international viewers or those seeking more flexible viewing options, AEW al
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/how-to-watch-aew-dynamite-on-streaming-with-or-without-cable/  
+> URL: https://instagram.hk.cn/tv/how-to-watch-aew-dynamite-on-streaming-with-or-without-cable/  
 

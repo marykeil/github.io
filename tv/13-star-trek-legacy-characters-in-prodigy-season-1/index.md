@@ -224,5 +224,5 @@ Star Trek: Prodigy season 1 is streaming on Netflix, and Star Trek: Prodigy seas
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/13-star-trek-legacy-characters-in-prodigy-season-1/  
+> URL: https://instagram.hk.cn/tv/13-star-trek-legacy-characters-in-prodigy-season-1/  
 

@@ -117,5 +117,5 @@ Outside this, certain character deaths felt forced and were a sad addition to th
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-harsh-realities-of-rewatching-castle-7-years-after-the-show-ended/  
+> URL: https://instagram.hk.cn/tv/8-harsh-realities-of-rewatching-castle-7-years-after-the-show-ended/  
 

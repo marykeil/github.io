@@ -78,5 +78,5 @@ or
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-summer-i-turned-pretty-season-3-renewal-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/the-summer-i-turned-pretty-season-3-renewal-cast-story-everything-we-know/  
 

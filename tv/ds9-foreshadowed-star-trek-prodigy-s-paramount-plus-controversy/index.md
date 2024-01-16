@@ -67,5 +67,5 @@ Star Trek: Prodigy season 1 is streaming now on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ds9-foreshadowed-star-trek-prodigy-s-paramount-plus-controversy/  
+> URL: https://instagram.hk.cn/tv/ds9-foreshadowed-star-trek-prodigy-s-paramount-plus-controversy/  
 

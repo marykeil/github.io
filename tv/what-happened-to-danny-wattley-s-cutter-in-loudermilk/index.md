@@ -49,5 +49,5 @@ Danny Wattley left Loudermilk to focus on his recovery, with Farrelly promising 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-happened-to-danny-wattley-s-cutter-in-loudermilk/  
+> URL: https://instagram.hk.cn/tv/what-happened-to-danny-wattley-s-cutter-in-loudermilk/  
 

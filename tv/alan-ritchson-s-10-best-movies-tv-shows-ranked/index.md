@@ -234,5 +234,5 @@ Ritchson has received significant praise for his book-accurate portrayal of Jack
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/alan-ritchson-s-10-best-movies-tv-shows-ranked/  
+> URL: https://instagram.hk.cn/tv/alan-ritchson-s-10-best-movies-tv-shows-ranked/  
 

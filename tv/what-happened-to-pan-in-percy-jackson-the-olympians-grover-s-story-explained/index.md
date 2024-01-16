@@ -86,5 +86,5 @@ New episodes of Percy Jackson and the Olympians premiere on Tuesdays at 9 pm ET 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-happened-to-pan-in-percy-jackson-the-olympians-grover-s-story-explained/  
+> URL: https://instagram.hk.cn/tv/what-happened-to-pan-in-percy-jackson-the-olympians-grover-s-story-explained/  
 

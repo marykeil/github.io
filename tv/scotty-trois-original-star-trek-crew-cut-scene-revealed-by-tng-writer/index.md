@@ -61,5 +61,5 @@ Star Trek: The Next Generation is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/scotty-trois-original-star-trek-crew-cut-scene-revealed-by-tng-writer/  
+> URL: https://instagram.hk.cn/tv/scotty-trois-original-star-trek-crew-cut-scene-revealed-by-tng-writer/  
 

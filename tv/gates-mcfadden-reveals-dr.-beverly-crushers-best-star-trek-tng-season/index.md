@@ -55,5 +55,5 @@ Star Trek: The Next Generation and Star Trek: Picard are available to stream on 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gates-mcfadden-reveals-dr.-beverly-crushers-best-star-trek-tng-season/  
+> URL: https://instagram.hk.cn/tv/gates-mcfadden-reveals-dr.-beverly-crushers-best-star-trek-tng-season/  
 

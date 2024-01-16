@@ -65,5 +65,5 @@ Monarch: Legacy of Monsters releases new episodes on Fridays on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-show-hints-at-2-new-monsterverse-titans-why-they-haven-t-appeared-yet/  
+> URL: https://instagram.hk.cn/tv/monarch-show-hints-at-2-new-monsterverse-titans-why-they-haven-t-appeared-yet/  
 

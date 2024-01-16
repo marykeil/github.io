@@ -137,5 +137,5 @@ Much like the surprising inclusion of hints regarding Kuma and Bonney&#39;s hear
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-the-major-one-piece-egghead-spoilers-new-intro-teases/  
+> URL: https://instagram.hk.cn/tv/all-the-major-one-piece-egghead-spoilers-new-intro-teases/  
 

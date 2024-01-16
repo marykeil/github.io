@@ -51,5 +51,5 @@ Young Sheldon writers need to be discerning which plots they want to highlight i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-7-hints-at-an-unexpected-character-return/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-7-hints-at-an-unexpected-character-return/  
 

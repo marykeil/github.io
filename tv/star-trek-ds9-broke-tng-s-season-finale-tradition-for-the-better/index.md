@@ -61,5 +61,5 @@ All episodes of Star Trek: Deep Space Nine are streaming now on Paramount&#43;
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-ds9-broke-tng-s-season-finale-tradition-for-the-better/  
+> URL: https://instagram.hk.cn/tv/star-trek-ds9-broke-tng-s-season-finale-tradition-for-the-better/  
 

@@ -105,5 +105,5 @@ Din Djarin&#39;s name isn&#39;t spoken at all until The Mandalorian season 1 fin
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-ways-the-mandalorian-season-1-has-been-changed-retconned-in-just-4-years/  
+> URL: https://instagram.hk.cn/tv/8-ways-the-mandalorian-season-1-has-been-changed-retconned-in-just-4-years/  
 

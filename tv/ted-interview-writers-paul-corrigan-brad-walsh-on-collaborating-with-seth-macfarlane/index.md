@@ -116,5 +116,5 @@ Ted begins streaming on Peacock on January 11.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-interview-writers-paul-corrigan-brad-walsh-on-collaborating-with-seth-macfarlane/  
+> URL: https://instagram.hk.cn/tv/ted-interview-writers-paul-corrigan-brad-walsh-on-collaborating-with-seth-macfarlane/  
 

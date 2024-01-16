@@ -48,5 +48,5 @@ The darkest moments in Gilmore Girls usually centered around personal betrayals 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/milo-ventimiglia-s-proposed-jess-fate-would-have-ruined-gilmore-girls/  
+> URL: https://instagram.hk.cn/tv/milo-ventimiglia-s-proposed-jess-fate-would-have-ruined-gilmore-girls/  
 

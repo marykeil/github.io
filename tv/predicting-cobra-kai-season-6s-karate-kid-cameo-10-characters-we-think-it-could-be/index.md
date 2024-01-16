@@ -185,5 +185,5 @@ Set decades after the events of the Karate Kid franchise, Cobra Kai shifts gears
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/predicting-cobra-kai-season-6s-karate-kid-cameo-10-characters-we-think-it-could-be/  
+> URL: https://instagram.hk.cn/tv/predicting-cobra-kai-season-6s-karate-kid-cameo-10-characters-we-think-it-could-be/  
 

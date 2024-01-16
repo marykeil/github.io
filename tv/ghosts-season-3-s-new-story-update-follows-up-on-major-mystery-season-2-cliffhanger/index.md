@@ -61,5 +61,5 @@ Ghosts is available to watch on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ghosts-season-3-s-new-story-update-follows-up-on-major-mystery-season-2-cliffhanger/  
+> URL: https://instagram.hk.cn/tv/ghosts-season-3-s-new-story-update-follows-up-on-major-mystery-season-2-cliffhanger/  
 

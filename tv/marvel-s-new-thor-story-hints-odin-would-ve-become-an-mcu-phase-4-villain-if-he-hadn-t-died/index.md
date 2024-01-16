@@ -68,5 +68,5 @@ Odin may have been killed off in Thor: Ragnarok to rid Earth&#39;s Mightiest Her
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/marvel-s-new-thor-story-hints-odin-would-ve-become-an-mcu-phase-4-villain-if-he-hadn-t-died/  
+> URL: https://instagram.hk.cn/tv/marvel-s-new-thor-story-hints-odin-would-ve-become-an-mcu-phase-4-villain-if-he-hadn-t-died/  
 

@@ -76,5 +76,5 @@ Because Moff Gideon attempted to sully Mandalorian culture by seizing the Darksa
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-rebels-already-revealed-why-mandalore-fell-to-the-empire-it-wasn-t-the-darksaber/  
+> URL: https://instagram.hk.cn/tv/star-wars-rebels-already-revealed-why-mandalore-fell-to-the-empire-it-wasn-t-the-darksaber/  
 

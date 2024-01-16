@@ -70,5 +70,5 @@ Power Rangers   Created by   Haim Saban , Shuki Levy    First TV Show   Mighty M
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/we-are-the-power-rangers-how-the-power-rangers-first-revealed-their-identity-to-the-world/  
+> URL: https://instagram.hk.cn/tv/we-are-the-power-rangers-how-the-power-rangers-first-revealed-their-identity-to-the-world/  
 

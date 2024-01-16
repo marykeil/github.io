@@ -198,5 +198,5 @@ Impressively, the anime adaptation of Oda&#39;s manga is still ongoing to this d
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-live-action-anime-tv-shows-ranked/  
+> URL: https://instagram.hk.cn/tv/10-best-live-action-anime-tv-shows-ranked/  
 

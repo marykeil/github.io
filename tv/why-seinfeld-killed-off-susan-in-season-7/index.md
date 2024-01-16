@@ -114,5 +114,5 @@ Though there are some Seinfeld guest stars like Courteney Cox and Jon Favreau wh
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-seinfeld-killed-off-susan-in-season-7/  
+> URL: https://instagram.hk.cn/tv/why-seinfeld-killed-off-susan-in-season-7/  
 

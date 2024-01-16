@@ -108,5 +108,5 @@ La Brea season 3 premieres Tuesday, January 9 at 9pm ET on NBC and is available 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/la-brea-interview-jack-martin-veronica-st.-clair-on-josh-and-riley-s-romance-in-the-final-season/  
+> URL: https://instagram.hk.cn/tv/la-brea-interview-jack-martin-veronica-st.-clair-on-josh-and-riley-s-romance-in-the-final-season/  
 

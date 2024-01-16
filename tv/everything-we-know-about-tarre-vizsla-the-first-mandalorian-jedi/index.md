@@ -123,5 +123,5 @@ Despite being dead for over one thousand years, Tarre lives on in the memory of 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/everything-we-know-about-tarre-vizsla-the-first-mandalorian-jedi/  
+> URL: https://instagram.hk.cn/tv/everything-we-know-about-tarre-vizsla-the-first-mandalorian-jedi/  
 

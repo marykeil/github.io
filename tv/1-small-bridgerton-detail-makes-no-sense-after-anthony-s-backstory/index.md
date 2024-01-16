@@ -48,5 +48,5 @@ Bridgerton From Shondaland and creator Chris Van Dusen, Netflix’s Bridgerton i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1-small-bridgerton-detail-makes-no-sense-after-anthony-s-backstory/  
+> URL: https://instagram.hk.cn/tv/1-small-bridgerton-detail-makes-no-sense-after-anthony-s-backstory/  
 

@@ -261,5 +261,5 @@ New episodes of Percy Jackson and the Olympians release every Tuesday on Disney&
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/every-mythological-species-monster-in-percy-jackson-season-1-explained/  
+> URL: https://instagram.hk.cn/tv/every-mythological-species-monster-in-percy-jackson-season-1-explained/  
 

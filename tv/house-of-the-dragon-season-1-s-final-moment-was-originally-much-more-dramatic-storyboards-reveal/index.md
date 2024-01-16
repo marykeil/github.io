@@ -55,5 +55,5 @@ House of the Dragon season 2 is set to premiere in summer 2024
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/house-of-the-dragon-season-1-s-final-moment-was-originally-much-more-dramatic-storyboards-reveal/  
+> URL: https://instagram.hk.cn/tv/house-of-the-dragon-season-1-s-final-moment-was-originally-much-more-dramatic-storyboards-reveal/  
 

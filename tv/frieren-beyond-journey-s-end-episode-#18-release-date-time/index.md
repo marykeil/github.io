@@ -64,5 +64,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/frieren-beyond-journey-s-end-episode-#18-release-date-time/  
+> URL: https://instagram.hk.cn/tv/frieren-beyond-journey-s-end-episode-#18-release-date-time/  
 

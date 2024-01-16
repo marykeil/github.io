@@ -42,5 +42,5 @@ Esfandi&#39;s comments help to reiterate just how impressive the actor&#39;s Sta
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ezra-bridger-actor-reveals-his-favorite-ahsoka-fight-scenes-stunts/  
+> URL: https://instagram.hk.cn/tv/ezra-bridger-actor-reveals-his-favorite-ahsoka-fight-scenes-stunts/  
 

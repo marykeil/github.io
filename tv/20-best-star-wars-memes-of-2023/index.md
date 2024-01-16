@@ -243,5 +243,5 @@ This meme points out a shocking fact: Admiral Akbar’s iconic line, “It’s a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/20-best-star-wars-memes-of-2023/  
+> URL: https://instagram.hk.cn/tv/20-best-star-wars-memes-of-2023/  
 

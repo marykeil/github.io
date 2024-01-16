@@ -69,5 +69,5 @@ Unfortunately, as soon as he rises above the archetypes associated with his char
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-season-2-hilariously-calls-out-its-own-blatant-character-stereotype/  
+> URL: https://instagram.hk.cn/tv/reacher-season-2-hilariously-calls-out-its-own-blatant-character-stereotype/  
 

@@ -129,5 +129,5 @@ There’s a reason this show is called Rick and Morty; it works best when Rick a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/9-important-lessons-rick-morty-season-8-must-learn-from-season-7s-major-changes/  
+> URL: https://instagram.hk.cn/tv/9-important-lessons-rick-morty-season-8-must-learn-from-season-7s-major-changes/  
 

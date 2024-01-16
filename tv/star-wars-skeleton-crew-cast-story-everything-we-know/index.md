@@ -105,5 +105,5 @@ While Andor highlights the darker side of the galaxy, Star Wars: Skeleton Crew a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-skeleton-crew-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/star-wars-skeleton-crew-cast-story-everything-we-know/  
 

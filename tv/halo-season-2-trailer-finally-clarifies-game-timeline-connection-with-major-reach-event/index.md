@@ -62,5 +62,5 @@ Long stretches of the combat in the first Halo game take place in the corridors 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/halo-season-2-trailer-finally-clarifies-game-timeline-connection-with-major-reach-event/  
+> URL: https://instagram.hk.cn/tv/halo-season-2-trailer-finally-clarifies-game-timeline-connection-with-major-reach-event/  
 

@@ -69,5 +69,5 @@ Fool Me Once is available to stream on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/fool-me-once-s-most-suspicious-character-gets-passionate-defense-from-book-author/  
+> URL: https://instagram.hk.cn/tv/fool-me-once-s-most-suspicious-character-gets-passionate-defense-from-book-author/  
 

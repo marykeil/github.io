@@ -65,5 +65,5 @@ For All Mankind is available to stream on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/for-all-mankind-season-4-s-shocking-ending-explained-by-dani-actor/  
+> URL: https://instagram.hk.cn/tv/for-all-mankind-season-4-s-shocking-ending-explained-by-dani-actor/  
 

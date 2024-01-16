@@ -87,5 +87,5 @@ From the very first season of the show, Jack understood the importance of the gr
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/lost-dropping-its-original-jack-plan-saved-from-show-from-failing-in-season-1/  
+> URL: https://instagram.hk.cn/tv/lost-dropping-its-original-jack-plan-saved-from-show-from-failing-in-season-1/  
 

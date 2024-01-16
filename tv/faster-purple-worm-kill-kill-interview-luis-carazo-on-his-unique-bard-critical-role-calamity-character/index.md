@@ -185,5 +185,5 @@ Check out our other Faster, Purple Worm! Kill! Kill! interviews:
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/faster-purple-worm-kill-kill-interview-luis-carazo-on-his-unique-bard-critical-role-calamity-character/  
+> URL: https://instagram.hk.cn/tv/faster-purple-worm-kill-kill-interview-luis-carazo-on-his-unique-bard-critical-role-calamity-character/  
 

@@ -77,5 +77,5 @@ A New Hope, like the rest of the original trilogy and prequel trilogy movies, is
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/obi-wan-kenobi-brought-back-one-legends-continuity-problem-but-star-wars-canon-has-a-fix/  
+> URL: https://instagram.hk.cn/tv/obi-wan-kenobi-brought-back-one-legends-continuity-problem-but-star-wars-canon-has-a-fix/  
 

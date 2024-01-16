@@ -90,5 +90,5 @@ Presented at Netflix&#39;s TUDUM event, the Outer Banks season 4 trailer shows t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/outer-banks-season-4-cast-story-details-teaser-trailer-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/outer-banks-season-4-cast-story-details-teaser-trailer-everything-we-know/  
 

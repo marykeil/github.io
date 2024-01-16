@@ -56,5 +56,5 @@ Time will tell what the larger story of Creature Commandos is, as DC Studios has
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/james-gunn-confirms-major-wonder-woman-villain-casting-for-first-dc-universe-project/  
+> URL: https://instagram.hk.cn/tv/james-gunn-confirms-major-wonder-woman-villain-casting-for-first-dc-universe-project/  
 

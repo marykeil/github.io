@@ -61,5 +61,5 @@ Lucasfilm&#39;s comments suggest development is still in its earliest stages, th
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ahsoka-season-2-confirmed-in-major-star-wars-update/  
+> URL: https://instagram.hk.cn/tv/ahsoka-season-2-confirmed-in-major-star-wars-update/  
 

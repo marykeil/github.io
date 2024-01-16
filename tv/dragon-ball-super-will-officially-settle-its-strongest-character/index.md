@@ -58,5 +58,5 @@ The selection of characters has a wide variety of favorites found in Super, so t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dragon-ball-super-will-officially-settle-its-strongest-character/  
+> URL: https://instagram.hk.cn/tv/dragon-ball-super-will-officially-settle-its-strongest-character/  
 

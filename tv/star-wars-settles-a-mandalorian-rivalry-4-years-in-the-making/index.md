@@ -88,5 +88,5 @@ The Mandalorian is available to stream on Disney&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-settles-a-mandalorian-rivalry-4-years-in-the-making/  
+> URL: https://instagram.hk.cn/tv/star-wars-settles-a-mandalorian-rivalry-4-years-in-the-making/  
 

@@ -55,5 +55,5 @@ The Last of Us season 2 is set to begin filming in 2024 and premiere on HBO in 2
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/last-of-us-original-abby-voice-actor-reacts-to-hbos-season-2-casting-choice/  
+> URL: https://instagram.hk.cn/tv/last-of-us-original-abby-voice-actor-reacts-to-hbos-season-2-casting-choice/  
 

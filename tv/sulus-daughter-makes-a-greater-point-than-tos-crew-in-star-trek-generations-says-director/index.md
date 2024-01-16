@@ -58,5 +58,5 @@ Star Trek Generations is available to stream on Max &amp; Star Trek: Picard is a
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/sulus-daughter-makes-a-greater-point-than-tos-crew-in-star-trek-generations-says-director/  
+> URL: https://instagram.hk.cn/tv/sulus-daughter-makes-a-greater-point-than-tos-crew-in-star-trek-generations-says-director/  
 

@@ -71,5 +71,5 @@ Watch Now
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/exciting-new-hidive-anime-combines-isekai-with-death-games-a-possible-twist/  
+> URL: https://instagram.hk.cn/tv/exciting-new-hidive-anime-combines-isekai-with-death-games-a-possible-twist/  
 

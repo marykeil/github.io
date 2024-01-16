@@ -47,5 +47,5 @@ Although that graphic novel adaptation was also Certified Fresh, it was recently
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/michelle-yeoh-s-new-netflix-show-is-already-certified-fresh-on-rotten-tomatoes/  
+> URL: https://instagram.hk.cn/tv/michelle-yeoh-s-new-netflix-show-is-already-certified-fresh-on-rotten-tomatoes/  
 

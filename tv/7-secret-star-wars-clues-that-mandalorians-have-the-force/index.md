@@ -146,5 +146,5 @@ The first to demonstrate this burden was Sabine in Star Wars Rebels, as she stru
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/7-secret-star-wars-clues-that-mandalorians-have-the-force/  
+> URL: https://instagram.hk.cn/tv/7-secret-star-wars-clues-that-mandalorians-have-the-force/  
 

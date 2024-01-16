@@ -82,5 +82,5 @@ Most Power Rangers seasons are streaming on Power Rangers&#39; official YouTube 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/every-green-ranger-after-tommy-proved-what-made-mighty-morphins-evil-ranger-so-special/  
+> URL: https://instagram.hk.cn/tv/every-green-ranger-after-tommy-proved-what-made-mighty-morphins-evil-ranger-so-special/  
 

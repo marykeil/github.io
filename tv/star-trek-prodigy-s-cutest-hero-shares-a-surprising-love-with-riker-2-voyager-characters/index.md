@@ -61,5 +61,5 @@ Star Trek: Prodigy season 1 is streaming now on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigy-s-cutest-hero-shares-a-surprising-love-with-riker-2-voyager-characters/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigy-s-cutest-hero-shares-a-surprising-love-with-riker-2-voyager-characters/  
 

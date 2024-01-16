@@ -56,5 +56,5 @@ There is also some literary significance to Amy&#39;s white SUV, as it pertains 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/danny-amys-cars-in-beef-are-more-significant-than-we-thought-especially-the-suv/  
+> URL: https://instagram.hk.cn/tv/danny-amys-cars-in-beef-are-more-significant-than-we-thought-especially-the-suv/  
 

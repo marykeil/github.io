@@ -239,5 +239,5 @@ Sources: Uproxx, Cinemablend, SFX, YouTube/The Walking Dead, YouTube/MultiFandom
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-walking-dead-characters-who-were-supposed-to-die-earlier-than-they-did/  
+> URL: https://instagram.hk.cn/tv/10-walking-dead-characters-who-were-supposed-to-die-earlier-than-they-did/  
 

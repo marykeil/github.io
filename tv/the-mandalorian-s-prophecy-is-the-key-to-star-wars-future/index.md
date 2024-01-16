@@ -82,5 +82,5 @@ The Mandalorian is available to stream on Disney&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-s-prophecy-is-the-key-to-star-wars-future/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-s-prophecy-is-the-key-to-star-wars-future/  
 

@@ -89,5 +89,5 @@ The Mandalorian is available to stream on Disney&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-star-wars-quote-shows-what-the-mandalorian-got-wrong-about-luke-skywalker/  
+> URL: https://instagram.hk.cn/tv/one-star-wars-quote-shows-what-the-mandalorian-got-wrong-about-luke-skywalker/  
 

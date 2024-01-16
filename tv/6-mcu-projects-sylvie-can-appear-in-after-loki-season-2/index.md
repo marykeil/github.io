@@ -101,5 +101,5 @@ Key Release Dates             Deadpool 3 Release Date: 2024-07-26               
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/6-mcu-projects-sylvie-can-appear-in-after-loki-season-2/  
+> URL: https://instagram.hk.cn/tv/6-mcu-projects-sylvie-can-appear-in-after-loki-season-2/  
 

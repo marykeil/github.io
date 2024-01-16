@@ -87,5 +87,5 @@ All episodes of The Mandalorian are now available on Disney&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-season-4-is-officially-replacing-canceled-star-wars-tv-show/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-season-4-is-officially-replacing-canceled-star-wars-tv-show/  
 

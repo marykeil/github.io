@@ -57,5 +57,5 @@ The Walking Dead: Daryl Dixon - The Book of Carol will premiere on AMC and AMC&#
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/daryl-carol-are-reunited-but-running-for-their-lives-in-walking-dead-spinoff-fan-poster/  
+> URL: https://instagram.hk.cn/tv/daryl-carol-are-reunited-but-running-for-their-lives-in-walking-dead-spinoff-fan-poster/  
 

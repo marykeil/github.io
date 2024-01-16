@@ -60,5 +60,5 @@ Additionally, there&#39;s the added benefit of animation being much less impacte
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/an-animated-walking-dead-series-would-be-a-tough-sell-despite-comic-creators-approval/  
+> URL: https://instagram.hk.cn/tv/an-animated-walking-dead-series-would-be-a-tough-sell-despite-comic-creators-approval/  
 

@@ -98,5 +98,5 @@ Interestingly, Ahsoka has already laid the foundations for this kind of story in
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ahsoka-was-the-least-interesting-part-of-her-own-show...-there-s-a-simple-reason/  
+> URL: https://instagram.hk.cn/tv/ahsoka-was-the-least-interesting-part-of-her-own-show...-there-s-a-simple-reason/  
 

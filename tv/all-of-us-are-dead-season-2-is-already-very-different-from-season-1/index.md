@@ -71,5 +71,5 @@ The very fact Sweet Home would return for a second season was divisive, as it wo
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-of-us-are-dead-season-2-is-already-very-different-from-season-1/  
+> URL: https://instagram.hk.cn/tv/all-of-us-are-dead-season-2-is-already-very-different-from-season-1/  
 

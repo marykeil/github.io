@@ -54,5 +54,5 @@ Soul’s career slowed down in the 21st century, but he still took on projects i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/david-soul-starsky-hutch-actor-dies-at-80/  
+> URL: https://instagram.hk.cn/tv/david-soul-starsky-hutch-actor-dies-at-80/  
 

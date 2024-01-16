@@ -67,5 +67,5 @@ Before Homer hugged Bart, he was contorted with rage, and it seemed inevitable t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-simpsons-season-35-episode-10-spoofed-its-biggest-recent-controversy/  
+> URL: https://instagram.hk.cn/tv/the-simpsons-season-35-episode-10-spoofed-its-biggest-recent-controversy/  
 

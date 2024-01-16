@@ -55,5 +55,5 @@ Star Trek: The Next Generation &amp; Star Trek: Picard are available to stream o
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/marina-sirtis-says-watching-troi-in-star-trek-tng-premiere-was-difficult/  
+> URL: https://instagram.hk.cn/tv/marina-sirtis-says-watching-troi-in-star-trek-tng-premiere-was-difficult/  
 

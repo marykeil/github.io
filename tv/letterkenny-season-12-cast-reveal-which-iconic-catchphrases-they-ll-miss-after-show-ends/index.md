@@ -73,5 +73,5 @@ All seasons of Letterkenny are available to stream on Hulu.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/letterkenny-season-12-cast-reveal-which-iconic-catchphrases-they-ll-miss-after-show-ends/  
+> URL: https://instagram.hk.cn/tv/letterkenny-season-12-cast-reveal-which-iconic-catchphrases-they-ll-miss-after-show-ends/  
 

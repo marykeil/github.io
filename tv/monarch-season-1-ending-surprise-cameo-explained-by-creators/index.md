@@ -72,5 +72,5 @@ Specifically, a potential season 2 can now explore the rise of Apex Cybernetics.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-season-1-ending-surprise-cameo-explained-by-creators/  
+> URL: https://instagram.hk.cn/tv/monarch-season-1-ending-surprise-cameo-explained-by-creators/  
 

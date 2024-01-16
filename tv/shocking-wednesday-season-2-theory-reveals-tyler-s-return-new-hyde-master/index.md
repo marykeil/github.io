@@ -82,5 +82,5 @@ Wednesday and Tyler being forced to acknowledge the events of season 1 — and w
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/shocking-wednesday-season-2-theory-reveals-tyler-s-return-new-hyde-master/  
+> URL: https://instagram.hk.cn/tv/shocking-wednesday-season-2-theory-reveals-tyler-s-return-new-hyde-master/  
 

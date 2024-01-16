@@ -96,5 +96,5 @@ While it isn&#39;t a full trailer, CBS has provided the first real look at the n
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/fire-country-season-2-release-date-cast-story-trailer-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/fire-country-season-2-release-date-cast-story-trailer-everything-we-know/  
 

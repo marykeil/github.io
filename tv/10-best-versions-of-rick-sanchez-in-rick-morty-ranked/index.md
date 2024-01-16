@@ -175,5 +175,5 @@ Rick C-137 is the protagonist of Rick and Morty and has proven himself to be the
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-versions-of-rick-sanchez-in-rick-morty-ranked/  
+> URL: https://instagram.hk.cn/tv/10-best-versions-of-rick-sanchez-in-rick-morty-ranked/  
 

@@ -48,5 +48,5 @@ Still, viewers&#39; persistent curiosity about Cobra Kai&#39;s continuation reit
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/cobra-kai-season-7-future-miyagiverse-shows-addressed-by-creator/  
+> URL: https://instagram.hk.cn/tv/cobra-kai-season-7-future-miyagiverse-shows-addressed-by-creator/  
 

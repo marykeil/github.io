@@ -67,5 +67,5 @@ Canonically though, the Tri-Wing was created to be a vessel for the New Republic
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/there-s-no-way-you-spotted-this-hilarious-rise-of-skywalker-easter-egg-in-obi-wan-kenobi/  
+> URL: https://instagram.hk.cn/tv/there-s-no-way-you-spotted-this-hilarious-rise-of-skywalker-easter-egg-in-obi-wan-kenobi/  
 

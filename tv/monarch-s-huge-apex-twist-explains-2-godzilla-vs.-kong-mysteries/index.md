@@ -81,5 +81,5 @@ All Monarch Legacy of Monsters season 1 episodes are available to stream on Appl
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-s-huge-apex-twist-explains-2-godzilla-vs.-kong-mysteries/  
+> URL: https://instagram.hk.cn/tv/monarch-s-huge-apex-twist-explains-2-godzilla-vs.-kong-mysteries/  
 

@@ -61,5 +61,5 @@ That is not to mention the family and the students introduced in Cobra Kai, incl
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/oh-no-the-new-karate-movie-could-be-repeating-the-mistake-that-almost-killed-the-franchise-29-years-ago/  
+> URL: https://instagram.hk.cn/tv/oh-no-the-new-karate-movie-could-be-repeating-the-mistake-that-almost-killed-the-franchise-29-years-ago/  
 

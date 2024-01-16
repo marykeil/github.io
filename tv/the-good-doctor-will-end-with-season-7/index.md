@@ -63,5 +63,5 @@ The Good Doctor season 7 premieres February 20 on ABC.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-good-doctor-will-end-with-season-7/  
+> URL: https://instagram.hk.cn/tv/the-good-doctor-will-end-with-season-7/  
 

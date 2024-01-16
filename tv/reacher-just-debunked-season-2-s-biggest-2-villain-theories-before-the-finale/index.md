@@ -104,5 +104,5 @@ Reacher season 2 drops new episodes every Friday on Amazon Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-just-debunked-season-2-s-biggest-2-villain-theories-before-the-finale/  
+> URL: https://instagram.hk.cn/tv/reacher-just-debunked-season-2-s-biggest-2-villain-theories-before-the-finale/  
 

@@ -265,5 +265,5 @@ The best season of American Dad balances out the show&#39;s discordant ideas per
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-20-seasons-of-american-dad-ranked-worst-to-best/  
+> URL: https://instagram.hk.cn/tv/all-20-seasons-of-american-dad-ranked-worst-to-best/  
 

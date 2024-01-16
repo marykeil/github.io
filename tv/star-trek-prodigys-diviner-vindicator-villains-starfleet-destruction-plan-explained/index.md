@@ -92,5 +92,5 @@ Star Trek: Prodigy season 1 is available to stream on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigys-diviner-vindicator-villains-starfleet-destruction-plan-explained/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigys-diviner-vindicator-villains-starfleet-destruction-plan-explained/  
 

@@ -76,5 +76,5 @@ For fantasy anime, Meiji Gekken: 1874 is the last of the “Crunchyroll Original
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/crunchyroll-unveils-winter-2024-anime-release-calendar/  
+> URL: https://instagram.hk.cn/tv/crunchyroll-unveils-winter-2024-anime-release-calendar/  
 

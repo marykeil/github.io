@@ -45,5 +45,5 @@ Some might say that ABC wasted DJ, Geena, and Mary on The Conners. Rey&#39;s dep
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-conners-season-6-loses-an-original-cast-member/  
+> URL: https://instagram.hk.cn/tv/the-conners-season-6-loses-an-original-cast-member/  
 

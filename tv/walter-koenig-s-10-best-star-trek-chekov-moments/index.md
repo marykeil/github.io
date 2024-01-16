@@ -241,5 +241,5 @@ Star Trek: The Original Series movies are available for streaming on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/walter-koenig-s-10-best-star-trek-chekov-moments/  
+> URL: https://instagram.hk.cn/tv/walter-koenig-s-10-best-star-trek-chekov-moments/  
 

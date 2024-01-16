@@ -62,5 +62,5 @@ By removing Syrax and Daemon, to varying degrees, it ensures there&#39;s no doub
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/house-of-the-dragon-season-1-s-ending-change-made-rhaenyra-better-season-2-more-exciting/  
+> URL: https://instagram.hk.cn/tv/house-of-the-dragon-season-1-s-ending-change-made-rhaenyra-better-season-2-more-exciting/  
 

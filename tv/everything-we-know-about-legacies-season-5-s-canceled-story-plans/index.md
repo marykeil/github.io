@@ -113,5 +113,5 @@ Plec had it tough at the time. She was also a producer on Roswell, New Mexico, s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/everything-we-know-about-legacies-season-5-s-canceled-story-plans/  
+> URL: https://instagram.hk.cn/tv/everything-we-know-about-legacies-season-5-s-canceled-story-plans/  
 

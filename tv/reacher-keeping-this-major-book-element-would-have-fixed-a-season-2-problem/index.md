@@ -72,5 +72,5 @@ Reacher season 2 concludes Friday on Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-keeping-this-major-book-element-would-have-fixed-a-season-2-problem/  
+> URL: https://instagram.hk.cn/tv/reacher-keeping-this-major-book-element-would-have-fixed-a-season-2-problem/  
 

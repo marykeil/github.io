@@ -65,5 +65,5 @@ Be sure to watch Solo Leveling when it premieres on January 6, 2024, on Crunchyr
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/solo-leveling-review-an-exciting-debut-for-2024-s-hottest-anime/  
+> URL: https://instagram.hk.cn/tv/solo-leveling-review-an-exciting-debut-for-2024-s-hottest-anime/  
 

@@ -69,5 +69,5 @@ There is an easy fix for The Walking Dead franchise’s copycat villain problem.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/walking-dead-has-now-repeated-the-same-villains-3-times-after-daryl-dixon-s-spinoff/  
+> URL: https://instagram.hk.cn/tv/walking-dead-has-now-repeated-the-same-villains-3-times-after-daryl-dixon-s-spinoff/  
 

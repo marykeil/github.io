@@ -92,5 +92,5 @@ Both of the movies could only really count on Ted and John’s banter for laughs
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-3-ted-movies-shows-ranked/  
+> URL: https://instagram.hk.cn/tv/all-3-ted-movies-shows-ranked/  
 

@@ -224,5 +224,5 @@ Watch on Max
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-isekai-anime-of-all-time/  
+> URL: https://instagram.hk.cn/tv/10-best-isekai-anime-of-all-time/  
 

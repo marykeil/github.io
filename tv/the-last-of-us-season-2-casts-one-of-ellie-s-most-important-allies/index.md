@@ -63,5 +63,5 @@ The Last of Us season 1 is currently available to stream on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-last-of-us-season-2-casts-one-of-ellie-s-most-important-allies/  
+> URL: https://instagram.hk.cn/tv/the-last-of-us-season-2-casts-one-of-ellie-s-most-important-allies/  
 

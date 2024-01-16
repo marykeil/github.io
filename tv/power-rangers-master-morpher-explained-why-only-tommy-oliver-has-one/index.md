@@ -88,5 +88,5 @@ Most Power Rangers seasons are streaming on Power Rangers&#39; official YouTube 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/power-rangers-master-morpher-explained-why-only-tommy-oliver-has-one/  
+> URL: https://instagram.hk.cn/tv/power-rangers-master-morpher-explained-why-only-tommy-oliver-has-one/  
 

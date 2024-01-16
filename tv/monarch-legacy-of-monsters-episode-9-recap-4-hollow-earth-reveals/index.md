@@ -127,5 +127,5 @@ Monarch: Legacy of Monsters releases new episodes on Fridays on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/monarch-legacy-of-monsters-episode-9-recap-4-hollow-earth-reveals/  
+> URL: https://instagram.hk.cn/tv/monarch-legacy-of-monsters-episode-9-recap-4-hollow-earth-reveals/  
 

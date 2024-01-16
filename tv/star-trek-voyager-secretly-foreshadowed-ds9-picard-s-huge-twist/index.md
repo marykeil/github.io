@@ -61,5 +61,5 @@ Star Trek: Voyager, Star Trek: Deep Space Nine, and Star Trek: Picard are all av
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-voyager-secretly-foreshadowed-ds9-picard-s-huge-twist/  
+> URL: https://instagram.hk.cn/tv/star-trek-voyager-secretly-foreshadowed-ds9-picard-s-huge-twist/  
 

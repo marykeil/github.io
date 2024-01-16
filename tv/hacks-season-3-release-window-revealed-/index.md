@@ -49,5 +49,5 @@ While Hacks is joined by plenty of other shows that faced delays due to the stri
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/hacks-season-3-release-window-revealed-/  
+> URL: https://instagram.hk.cn/tv/hacks-season-3-release-window-revealed-/  
 

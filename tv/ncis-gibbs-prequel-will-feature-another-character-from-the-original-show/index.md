@@ -54,5 +54,5 @@ NCIS season 21 debuts Monday, February 12 at 9 PM ET on CBS.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ncis-gibbs-prequel-will-feature-another-character-from-the-original-show/  
+> URL: https://instagram.hk.cn/tv/ncis-gibbs-prequel-will-feature-another-character-from-the-original-show/  
 

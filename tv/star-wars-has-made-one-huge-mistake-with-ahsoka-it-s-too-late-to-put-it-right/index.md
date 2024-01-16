@@ -55,5 +55,5 @@ Devastatingly, the events of Ahsoka mean this choice cannot effectively be undon
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-has-made-one-huge-mistake-with-ahsoka-it-s-too-late-to-put-it-right/  
+> URL: https://instagram.hk.cn/tv/star-wars-has-made-one-huge-mistake-with-ahsoka-it-s-too-late-to-put-it-right/  
 

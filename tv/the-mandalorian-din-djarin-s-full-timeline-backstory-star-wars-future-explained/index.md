@@ -145,5 +145,5 @@ Din, now solidified as one of Star Wars&#39; most important heroes, is only inte
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-din-djarin-s-full-timeline-backstory-star-wars-future-explained/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-din-djarin-s-full-timeline-backstory-star-wars-future-explained/  
 

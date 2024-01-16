@@ -91,5 +91,5 @@ As Sharon Horgan alluded to in her interview with GQ, the story of Bad Sisters s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/bad-sisters-season-2-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/bad-sisters-season-2-cast-story-everything-we-know/  
 

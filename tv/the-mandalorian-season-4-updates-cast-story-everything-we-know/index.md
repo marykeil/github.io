@@ -69,5 +69,5 @@ The Mandalorian season 3&#39;s finale established a new status quo for Din Djari
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-season-4-updates-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-season-4-updates-cast-story-everything-we-know/  
 

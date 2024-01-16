@@ -55,5 +55,5 @@ Severance season 1 is currently streaming on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/severance-season-2-gets-direct-update-from-ben-stiller-after-appletv&#43;-tease/  
+> URL: https://instagram.hk.cn/tv/severance-season-2-gets-direct-update-from-ben-stiller-after-appletv&#43;-tease/  
 

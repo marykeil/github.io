@@ -78,5 +78,5 @@ or
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dr.-stone-s-newest-arc-ended-its-villain-in-the-most-brutal-way-yet/  
+> URL: https://instagram.hk.cn/tv/dr.-stone-s-newest-arc-ended-its-villain-in-the-most-brutal-way-yet/  
 

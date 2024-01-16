@@ -154,5 +154,5 @@ Sources: Popsugar
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-bear-carmys-8-tattoos-their-meaning-explained/  
+> URL: https://instagram.hk.cn/tv/the-bear-carmys-8-tattoos-their-meaning-explained/  
 

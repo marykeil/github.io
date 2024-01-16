@@ -123,5 +123,5 @@ Emmett Scanlon as Shane Tessier – Maya&#39;s friend from her days as a soldier
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/fool-me-once-cast-character-guide/  
+> URL: https://instagram.hk.cn/tv/fool-me-once-cast-character-guide/  
 

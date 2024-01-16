@@ -62,5 +62,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dragon-ball-z-s-cell-actually-never-reached-his-ultimate-form-by-missing-1-upgrade/  
+> URL: https://instagram.hk.cn/tv/dragon-ball-z-s-cell-actually-never-reached-his-ultimate-form-by-missing-1-upgrade/  
 

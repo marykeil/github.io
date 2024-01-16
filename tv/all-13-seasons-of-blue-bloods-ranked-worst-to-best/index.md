@@ -201,5 +201,5 @@ The first season of Blue Bloods introduces the Reagan family as audiences learn 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-13-seasons-of-blue-bloods-ranked-worst-to-best/  
+> URL: https://instagram.hk.cn/tv/all-13-seasons-of-blue-bloods-ranked-worst-to-best/  
 

@@ -283,5 +283,5 @@ Created by Eiichiro Oda, One Piece is a multimedia franchise that began as a man
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-piece-every-warlord-ranked-by-strength/  
+> URL: https://instagram.hk.cn/tv/one-piece-every-warlord-ranked-by-strength/  
 

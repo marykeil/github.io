@@ -96,5 +96,5 @@ Charlie Bradbury was a recurring character between Supernatural season 7 and sea
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/7-supernatural-supporting-characters-who-could-continue-the-show-after-sam-dean/  
+> URL: https://instagram.hk.cn/tv/7-supernatural-supporting-characters-who-could-continue-the-show-after-sam-dean/  
 

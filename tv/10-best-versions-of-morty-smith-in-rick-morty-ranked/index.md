@@ -177,5 +177,5 @@ Rick and Morty is an adventure/Sci-Fi animated series that follows the intergala
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-versions-of-morty-smith-in-rick-morty-ranked/  
+> URL: https://instagram.hk.cn/tv/10-best-versions-of-morty-smith-in-rick-morty-ranked/  
 

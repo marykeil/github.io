@@ -69,5 +69,5 @@ For established franchises like Game of Thrones, The Lord of the Rings, and The 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/hbo-s-house-of-the-dragon-spinoff-will-continue-an-exciting-fantasy-franchise-trend/  
+> URL: https://instagram.hk.cn/tv/hbo-s-house-of-the-dragon-spinoff-will-continue-an-exciting-fantasy-franchise-trend/  
 

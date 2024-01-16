@@ -231,5 +231,5 @@ On his very first day at Sacred Heart Hospital, J.D. meets Turk and Elliot, and 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/15-best-tv-show-friendships-ranked/  
+> URL: https://instagram.hk.cn/tv/15-best-tv-show-friendships-ranked/  
 

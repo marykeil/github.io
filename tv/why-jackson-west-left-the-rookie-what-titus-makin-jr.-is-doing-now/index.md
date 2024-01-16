@@ -56,5 +56,5 @@ Sources: TVLine, EW, Butterfly Ali official website
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-jackson-west-left-the-rookie-what-titus-makin-jr.-is-doing-now/  
+> URL: https://instagram.hk.cn/tv/why-jackson-west-left-the-rookie-what-titus-makin-jr.-is-doing-now/  
 

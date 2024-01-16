@@ -82,5 +82,5 @@ Sources: GLAAD
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/our-flag-means-death-s-cancellation-continues-a-disappointing-trend-for-lgbtq&#43;-shows/  
+> URL: https://instagram.hk.cn/tv/our-flag-means-death-s-cancellation-continues-a-disappointing-trend-for-lgbtq&#43;-shows/  
 

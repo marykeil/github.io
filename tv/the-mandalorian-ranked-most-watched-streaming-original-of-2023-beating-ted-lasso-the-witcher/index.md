@@ -53,5 +53,5 @@ It will be interesting to see whether The Mandalorian season 3 has had any impac
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-ranked-most-watched-streaming-original-of-2023-beating-ted-lasso-the-witcher/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-ranked-most-watched-streaming-original-of-2023-beating-ted-lasso-the-witcher/  
 

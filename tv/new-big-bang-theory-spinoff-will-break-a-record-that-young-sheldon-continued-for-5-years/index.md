@@ -69,5 +69,5 @@ At this point, it&#39;s anybody&#39;s guess when Parsons will play Sheldon again
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/new-big-bang-theory-spinoff-will-break-a-record-that-young-sheldon-continued-for-5-years/  
+> URL: https://instagram.hk.cn/tv/new-big-bang-theory-spinoff-will-break-a-record-that-young-sheldon-continued-for-5-years/  
 

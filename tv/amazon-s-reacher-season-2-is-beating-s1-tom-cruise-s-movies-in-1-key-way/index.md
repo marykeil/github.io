@@ -78,5 +78,5 @@ Reacher season 2 drops new episodes every Friday on Amazon Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/amazon-s-reacher-season-2-is-beating-s1-tom-cruise-s-movies-in-1-key-way/  
+> URL: https://instagram.hk.cn/tv/amazon-s-reacher-season-2-is-beating-s1-tom-cruise-s-movies-in-1-key-way/  
 

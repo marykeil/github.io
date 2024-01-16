@@ -58,5 +58,5 @@ Star Trek: The Next Generation &amp; Star Trek: Picard are available to stream o
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/tngs-only-peabody-award-winning-episode-justified-the-show-says-star-trek-writer/  
+> URL: https://instagram.hk.cn/tv/tngs-only-peabody-award-winning-episode-justified-the-show-says-star-trek-writer/  
 

@@ -189,5 +189,5 @@ Watch Now On Hulu
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-urban-fantasy-anime/  
+> URL: https://instagram.hk.cn/tv/10-best-urban-fantasy-anime/  
 

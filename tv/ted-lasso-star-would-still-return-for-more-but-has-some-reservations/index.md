@@ -54,5 +54,5 @@ Ted Lasso seasons 1-3 are streaming on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-lasso-star-would-still-return-for-more-but-has-some-reservations/  
+> URL: https://instagram.hk.cn/tv/ted-lasso-star-would-still-return-for-more-but-has-some-reservations/  
 

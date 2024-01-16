@@ -85,5 +85,5 @@ The Walking Dead: The Ones Who Live premieres Feb 25 on AMC.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-the-yellow-gas-in-rick-s-walking-dead-spinoff-actually-is-how-it-connects-to-2-other-shows/  
+> URL: https://instagram.hk.cn/tv/what-the-yellow-gas-in-rick-s-walking-dead-spinoff-actually-is-how-it-connects-to-2-other-shows/  
 

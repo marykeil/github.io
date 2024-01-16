@@ -67,5 +67,5 @@ Sources: myFanbase, E!News
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-happened-to-the-kid-who-played-jamie-scott-after-one-tree-hill-ended/  
+> URL: https://instagram.hk.cn/tv/what-happened-to-the-kid-who-played-jamie-scott-after-one-tree-hill-ended/  
 

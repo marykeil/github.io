@@ -71,5 +71,5 @@ Joyce, however, will be left somewhat in limbo if her bridges with Minx are fore
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/minx-season-3-cancelation-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/minx-season-3-cancelation-everything-we-know/  
 

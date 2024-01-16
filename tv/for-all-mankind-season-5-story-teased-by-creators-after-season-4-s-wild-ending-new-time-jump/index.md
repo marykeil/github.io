@@ -71,5 +71,5 @@ All episodes of For All Mankind are streaming now on Apple TV&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/for-all-mankind-season-5-story-teased-by-creators-after-season-4-s-wild-ending-new-time-jump/  
+> URL: https://instagram.hk.cn/tv/for-all-mankind-season-5-story-teased-by-creators-after-season-4-s-wild-ending-new-time-jump/  
 

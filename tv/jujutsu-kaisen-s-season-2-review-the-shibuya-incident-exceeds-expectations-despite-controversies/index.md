@@ -104,5 +104,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/jujutsu-kaisen-s-season-2-review-the-shibuya-incident-exceeds-expectations-despite-controversies/  
+> URL: https://instagram.hk.cn/tv/jujutsu-kaisen-s-season-2-review-the-shibuya-incident-exceeds-expectations-despite-controversies/  
 

@@ -157,5 +157,5 @@ In an AMA (via Reddit), a reader asked Hugh Howey if he plans to expand Silo&#39
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/silo-spoilers-what-happens-in-the-books-biggest-reveals/  
+> URL: https://instagram.hk.cn/tv/silo-spoilers-what-happens-in-the-books-biggest-reveals/  
 

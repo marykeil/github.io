@@ -66,5 +66,5 @@ Earlier attempts to inject topical satire into recent seasons of The Simpsons fe
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-simpsons-season-35-episode-10-fixes-a-major-recent-problem/  
+> URL: https://instagram.hk.cn/tv/the-simpsons-season-35-episode-10-fixes-a-major-recent-problem/  
 

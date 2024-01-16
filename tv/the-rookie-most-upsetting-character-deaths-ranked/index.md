@@ -151,5 +151,5 @@ Jackson West is killed off within the first few minutes of The Rookie season 4, 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-rookie-most-upsetting-character-deaths-ranked/  
+> URL: https://instagram.hk.cn/tv/the-rookie-most-upsetting-character-deaths-ranked/  
 

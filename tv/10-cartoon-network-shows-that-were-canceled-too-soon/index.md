@@ -188,5 +188,5 @@ Young Justice focused on teenage versions of DC superheroes like Robin, Kid Flas
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-cartoon-network-shows-that-were-canceled-too-soon/  
+> URL: https://instagram.hk.cn/tv/10-cartoon-network-shows-that-were-canceled-too-soon/  
 

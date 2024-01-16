@@ -74,5 +74,5 @@ Watch Tokyo Drift On Amazon Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/only-two-fast-and-furious-movies-have-truly-delivered-on-the-franchise-s-original-premise/  
+> URL: https://instagram.hk.cn/tv/only-two-fast-and-furious-movies-have-truly-delivered-on-the-franchise-s-original-premise/  
 

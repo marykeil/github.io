@@ -95,5 +95,5 @@ All episodes of Invincible are on Amazon Prime Video. All of season 1 is on the 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/invincible-theory-reveals-omni-man-hasn-t-actually-changed-still-has-an-evil-plan/  
+> URL: https://instagram.hk.cn/tv/invincible-theory-reveals-omni-man-hasn-t-actually-changed-still-has-an-evil-plan/  
 

@@ -73,5 +73,5 @@ Young Sheldon season 7 has other plots to tackle.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-7-just-needs-this-1-returning-character-to-fix-georgie-mandy-s-story/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-7-just-needs-this-1-returning-character-to-fix-georgie-mandy-s-story/  
 

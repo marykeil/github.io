@@ -99,5 +99,5 @@ Star Trek: The Next Generation   Cast:   Patrick Stewart, Marina Sirtis, Brent S
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/7-episodes-from-star-trek-tng-s-worst-season-are-better-than-you-remember/  
+> URL: https://instagram.hk.cn/tv/7-episodes-from-star-trek-tng-s-worst-season-are-better-than-you-remember/  
 

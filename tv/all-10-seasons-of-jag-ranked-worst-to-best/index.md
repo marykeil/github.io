@@ -176,5 +176,5 @@ Catherine Bell&#39;s introduction as Mac in JAG Season 2, following Tracy Needha
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-10-seasons-of-jag-ranked-worst-to-best/  
+> URL: https://instagram.hk.cn/tv/all-10-seasons-of-jag-ranked-worst-to-best/  
 

@@ -148,5 +148,5 @@ Echo debuts on Disney&#43; on January 9 at 6pm PT.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/echo-interview-richie-palmer-on-wilson-fisk-s-reach-beyond-new-york-marvel-spotlight-stories/  
+> URL: https://instagram.hk.cn/tv/echo-interview-richie-palmer-on-wilson-fisk-s-reach-beyond-new-york-marvel-spotlight-stories/  
 

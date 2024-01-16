@@ -77,5 +77,5 @@ McKenna Grace is likely busy with other projects, like the upcoming Ghostbusters
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-7s-teaser-trailer-leaves-out-a-major-character/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-7s-teaser-trailer-leaves-out-a-major-character/  
 

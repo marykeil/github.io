@@ -56,5 +56,5 @@ A prequel could also dive deeper into Thing&#39;s origins. Then again, any scree
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/there-s-only-1-way-an-uncle-fester-spinoff-could-work-wednesday-teased-the-idea/  
+> URL: https://instagram.hk.cn/tv/there-s-only-1-way-an-uncle-fester-spinoff-could-work-wednesday-teased-the-idea/  
 

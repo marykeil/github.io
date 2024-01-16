@@ -55,5 +55,5 @@ Star Trek: The Next Generation is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/trois-famous-star-trek-tng-costumes-had-fabulous-underwear-says-marina-sirtis/  
+> URL: https://instagram.hk.cn/tv/trois-famous-star-trek-tng-costumes-had-fabulous-underwear-says-marina-sirtis/  
 

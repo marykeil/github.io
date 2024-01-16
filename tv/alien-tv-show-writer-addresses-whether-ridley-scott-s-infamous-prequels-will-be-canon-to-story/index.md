@@ -54,5 +54,5 @@ Alien: Romulus will be released in theaters on August 24.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/alien-tv-show-writer-addresses-whether-ridley-scott-s-infamous-prequels-will-be-canon-to-story/  
+> URL: https://instagram.hk.cn/tv/alien-tv-show-writer-addresses-whether-ridley-scott-s-infamous-prequels-will-be-canon-to-story/  
 

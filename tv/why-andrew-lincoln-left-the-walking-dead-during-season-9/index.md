@@ -73,5 +73,5 @@ Michonne is also alive, racing on horseback to search for Rick after finding evi
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-andrew-lincoln-left-the-walking-dead-during-season-9/  
+> URL: https://instagram.hk.cn/tv/why-andrew-lincoln-left-the-walking-dead-during-season-9/  
 

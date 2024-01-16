@@ -65,5 +65,5 @@ Blu-ray sales have always been used to determine whether an anime gets a sequel,
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chainsaw-man-anime-studio-already-busted-a-big-myth-about-the-series/  
+> URL: https://instagram.hk.cn/tv/chainsaw-man-anime-studio-already-busted-a-big-myth-about-the-series/  
 

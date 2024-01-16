@@ -56,5 +56,5 @@ Young Sheldon season 7 premieres on Thursday, February 15.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-7-premiere-synopsis-teases-tornado-fallout-for-the-coopers/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-7-premiere-synopsis-teases-tornado-fallout-for-the-coopers/  
 

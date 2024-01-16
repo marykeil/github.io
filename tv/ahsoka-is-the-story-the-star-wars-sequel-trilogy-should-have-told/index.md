@@ -105,5 +105,5 @@ As the Star Wars franchise heads toward this Mandalorian-era crossover movie dir
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ahsoka-is-the-story-the-star-wars-sequel-trilogy-should-have-told/  
+> URL: https://instagram.hk.cn/tv/ahsoka-is-the-story-the-star-wars-sequel-trilogy-should-have-told/  
 

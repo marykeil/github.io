@@ -57,5 +57,5 @@ This intense work schedule might explain why One-Punch Man&#39;s latest chapters
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-punch-man-artist-announces-new-anime-studio/  
+> URL: https://instagram.hk.cn/tv/one-punch-man-artist-announces-new-anime-studio/  
 

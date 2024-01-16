@@ -77,5 +77,5 @@ It took a long time for Darlene and Jackie to find happiness, and Dan’s unexpe
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-the-conners-season-6s-tyler-return-means-for-roseannes-spinoff/  
+> URL: https://instagram.hk.cn/tv/what-the-conners-season-6s-tyler-return-means-for-roseannes-spinoff/  
 

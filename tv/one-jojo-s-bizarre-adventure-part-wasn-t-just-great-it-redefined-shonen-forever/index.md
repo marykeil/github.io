@@ -71,5 +71,5 @@ It would certainly be unrealistic to expect every JoJo fan to be on the same pag
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-jojo-s-bizarre-adventure-part-wasn-t-just-great-it-redefined-shonen-forever/  
+> URL: https://instagram.hk.cn/tv/one-jojo-s-bizarre-adventure-part-wasn-t-just-great-it-redefined-shonen-forever/  
 

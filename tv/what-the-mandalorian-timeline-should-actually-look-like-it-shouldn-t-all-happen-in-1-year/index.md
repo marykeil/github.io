@@ -87,5 +87,5 @@ The Mandalorian seasons 1 and 2 and The Book of Boba Fett covered a lot of groun
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-the-mandalorian-timeline-should-actually-look-like-it-shouldn-t-all-happen-in-1-year/  
+> URL: https://instagram.hk.cn/tv/what-the-mandalorian-timeline-should-actually-look-like-it-shouldn-t-all-happen-in-1-year/  
 

@@ -59,5 +59,5 @@ Based on the trailer, it looks like Death and Other Details will feature connivi
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/death-other-details-trailer-reveals-hulu-s-answer-to-the-white-lotus-season-3-wait-/  
+> URL: https://instagram.hk.cn/tv/death-other-details-trailer-reveals-hulu-s-answer-to-the-white-lotus-season-3-wait-/  
 

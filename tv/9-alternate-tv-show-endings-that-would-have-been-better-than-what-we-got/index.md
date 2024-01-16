@@ -178,5 +178,5 @@ Sources: EW, IndieWire, TikTok
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/9-alternate-tv-show-endings-that-would-have-been-better-than-what-we-got/  
+> URL: https://instagram.hk.cn/tv/9-alternate-tv-show-endings-that-would-have-been-better-than-what-we-got/  
 

@@ -50,5 +50,5 @@ Whether Young Sheldon can deliver a satisfying send-off, given season 7&#39;s sh
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-7-storylines-teased-in-new-season-6-recap-trailer/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-7-storylines-teased-in-new-season-6-recap-trailer/  
 

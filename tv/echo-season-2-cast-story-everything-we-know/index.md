@@ -74,5 +74,5 @@ While Phase 5&#39;s Echo explores Maya Lopez&#39;s backstory, and sees her gain 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/echo-season-2-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/echo-season-2-cast-story-everything-we-know/  
 

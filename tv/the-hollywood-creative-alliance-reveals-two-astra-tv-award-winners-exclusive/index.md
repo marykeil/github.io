@@ -53,5 +53,5 @@ The 3rd annual ASTRA TV Awards will take place on Monday, January 8th. They can 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-hollywood-creative-alliance-reveals-two-astra-tv-award-winners-exclusive/  
+> URL: https://instagram.hk.cn/tv/the-hollywood-creative-alliance-reveals-two-astra-tv-award-winners-exclusive/  
 

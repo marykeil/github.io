@@ -177,5 +177,5 @@ In Lee Child&#39;s series, Reacher&#39;s &#34;rules&#34; are a crucial element o
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-jack-reacher-book-traits-that-alan-ritchson-s-reacher-has-nailed/  
+> URL: https://instagram.hk.cn/tv/10-jack-reacher-book-traits-that-alan-ritchson-s-reacher-has-nailed/  
 

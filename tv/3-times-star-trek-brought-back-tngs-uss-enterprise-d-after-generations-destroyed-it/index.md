@@ -90,5 +90,5 @@ Star Trek: The Next Generation, Star Trek: Lower Decks, &amp; Star Trek: Picard 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/3-times-star-trek-brought-back-tngs-uss-enterprise-d-after-generations-destroyed-it/  
+> URL: https://instagram.hk.cn/tv/3-times-star-trek-brought-back-tngs-uss-enterprise-d-after-generations-destroyed-it/  
 

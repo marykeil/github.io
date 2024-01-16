@@ -68,5 +68,5 @@ Outer Range&#39;s unique mash-up of genres, like Dark meets Yellowstone, helps s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-perfect-dark-replacement-is-on-prime-video-season-2-is-on-its-way/  
+> URL: https://instagram.hk.cn/tv/the-perfect-dark-replacement-is-on-prime-video-season-2-is-on-its-way/  
 

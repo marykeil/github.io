@@ -75,5 +75,5 @@ The Mandalorian &amp; Grogu&#39;s announcement confirmed that Grogu will be focu
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mandalorian-movie-will-prove-a-controversial-luke-skywalker-decision-was-right/  
+> URL: https://instagram.hk.cn/tv/the-mandalorian-movie-will-prove-a-controversial-luke-skywalker-decision-was-right/  
 

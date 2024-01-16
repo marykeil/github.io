@@ -66,5 +66,5 @@ A Sailor Moon live-action adaptation is also overdue because of the shocking lac
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/a-20-year-old-live-action-anime-adaptation-is-way-overdue-for-a-remake/  
+> URL: https://instagram.hk.cn/tv/a-20-year-old-live-action-anime-adaptation-is-way-overdue-for-a-remake/  
 

@@ -58,5 +58,5 @@ Both Ahsoka and Star Wars Rebels are available to stream on Disney&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ahsoka-s-grand-admiral-thrawn-ezra-bridger-plot-has-a-purrgil-sized-plot-hole/  
+> URL: https://instagram.hk.cn/tv/ahsoka-s-grand-admiral-thrawn-ezra-bridger-plot-has-a-purrgil-sized-plot-hole/  
 

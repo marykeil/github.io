@@ -69,5 +69,5 @@ Since the conclusion of the strikes this fall, there has yet to be official conf
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/severance-season-2-update-teased-by-apple-with-adam-scott-image/  
+> URL: https://instagram.hk.cn/tv/severance-season-2-update-teased-by-apple-with-adam-scott-image/  
 

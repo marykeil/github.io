@@ -82,5 +82,5 @@ Avatar: The Last Airbender (Live-Action)   Release Date   February 22, 2024    C
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1-avatar-story-missing-from-the-animated-last-airbender-needs-to-be-in-netflixs-live-action/  
+> URL: https://instagram.hk.cn/tv/1-avatar-story-missing-from-the-animated-last-airbender-needs-to-be-in-netflixs-live-action/  
 

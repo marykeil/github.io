@@ -55,5 +55,5 @@ Star Trek: The Original Series and Star Trek: Strange New Worlds are available t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chris-pines-kickass-captain-kirk-praised-by-star-trek-writer/  
+> URL: https://instagram.hk.cn/tv/chris-pines-kickass-captain-kirk-praised-by-star-trek-writer/  
 

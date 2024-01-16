@@ -72,5 +72,5 @@ The Walking Dead: The Ones Who Live   Release Date   February 25, 2024    Cast  
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1-the-walking-dead-the-ones-who-live-detail-proves-it-can-accomplish-what-dead-city-couldnt/  
+> URL: https://instagram.hk.cn/tv/1-the-walking-dead-the-ones-who-live-detail-proves-it-can-accomplish-what-dead-city-couldnt/  
 

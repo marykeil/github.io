@@ -103,5 +103,5 @@ In a tweet that has also since been deleted, Kirkman declared “space spores”
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-walking-deads-zombie-outbreak-virus-origin-explained/  
+> URL: https://instagram.hk.cn/tv/the-walking-deads-zombie-outbreak-virus-origin-explained/  
 

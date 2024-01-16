@@ -261,5 +261,5 @@ The popularity of the Game of Thrones television series, and the fact that Georg
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/game-of-thrones-ending-explained-king-bran-daenerys-death-all-twists/  
+> URL: https://instagram.hk.cn/tv/game-of-thrones-ending-explained-king-bran-daenerys-death-all-twists/  
 

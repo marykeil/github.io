@@ -61,5 +61,5 @@ Buy from Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/my-hero-academia-season-6-part-1-blu-ray-review-the-series-greatest-arc-comes-to-home-video/  
+> URL: https://instagram.hk.cn/tv/my-hero-academia-season-6-part-1-blu-ray-review-the-series-greatest-arc-comes-to-home-video/  
 

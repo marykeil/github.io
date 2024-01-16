@@ -98,5 +98,5 @@ All episodes of Star Trek: Prodigy season 1 are streaming now on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-is-spread-out-across-3-streaming-services-now-where-to-watch/  
+> URL: https://instagram.hk.cn/tv/star-trek-is-spread-out-across-3-streaming-services-now-where-to-watch/  
 

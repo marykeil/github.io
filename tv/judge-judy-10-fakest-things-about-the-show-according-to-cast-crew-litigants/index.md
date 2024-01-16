@@ -167,5 +167,5 @@ An underrated aspect of the series is the relationship between Judy and the cour
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/judge-judy-10-fakest-things-about-the-show-according-to-cast-crew-litigants/  
+> URL: https://instagram.hk.cn/tv/judge-judy-10-fakest-things-about-the-show-according-to-cast-crew-litigants/  
 

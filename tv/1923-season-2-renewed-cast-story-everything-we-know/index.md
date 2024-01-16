@@ -113,5 +113,5 @@ Spencer previously appeared in a Yellowstone flashback set in 1893 when he was s
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/1923-season-2-renewed-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/1923-season-2-renewed-cast-story-everything-we-know/  
 

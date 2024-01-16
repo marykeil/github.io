@@ -60,5 +60,5 @@ Star Trek: The Next Generation is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/tng-finales-signature-poker-game-origin-explained-by-star-trek-writer/  
+> URL: https://instagram.hk.cn/tv/tng-finales-signature-poker-game-origin-explained-by-star-trek-writer/  
 

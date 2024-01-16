@@ -67,5 +67,5 @@ Still, an international setting for future Squid Game seasons would also have so
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/squid-game-theory-would-allow-netflix-to-expand-the-franchise-beyond-south-korea/  
+> URL: https://instagram.hk.cn/tv/squid-game-theory-would-allow-netflix-to-expand-the-franchise-beyond-south-korea/  
 

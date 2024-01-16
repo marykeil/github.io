@@ -197,5 +197,5 @@ The most recent use of &#34;dank farrik&#34; goes back to The Mandalorian&#39;s 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/all-12-times-the-mandalorian-s-iconic-star-wars-curse-has-been-spoken-why/  
+> URL: https://instagram.hk.cn/tv/all-12-times-the-mandalorian-s-iconic-star-wars-curse-has-been-spoken-why/  
 

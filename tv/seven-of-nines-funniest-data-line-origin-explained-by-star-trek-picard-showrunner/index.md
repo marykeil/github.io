@@ -66,5 +66,5 @@ Star Trek: Picard season 3 is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/seven-of-nines-funniest-data-line-origin-explained-by-star-trek-picard-showrunner/  
+> URL: https://instagram.hk.cn/tv/seven-of-nines-funniest-data-line-origin-explained-by-star-trek-picard-showrunner/  
 

@@ -56,5 +56,5 @@ Reacher season 2 releases new episodes every Friday on Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-season-2s-popularity-over-season-1-made-clear-in-new-data/  
+> URL: https://instagram.hk.cn/tv/reacher-season-2s-popularity-over-season-1-made-clear-in-new-data/  
 

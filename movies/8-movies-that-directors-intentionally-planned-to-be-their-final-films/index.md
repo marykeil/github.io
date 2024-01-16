@@ -132,5 +132,5 @@ Sources: Cineuropa, Variety, Guardian, Guardian, EW, Rolling Stone, New York Tim
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/movies/8-movies-that-directors-intentionally-planned-to-be-their-final-films/  
+> URL: https://instagram.hk.cn/movies/8-movies-that-directors-intentionally-planned-to-be-their-final-films/  
 

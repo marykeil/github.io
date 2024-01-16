@@ -64,5 +64,5 @@ It set the stage for the rest of the season, and for Root (Amy Acker) to be util
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-person-of-interest-killed-off-detective-carter-in-season-3/  
+> URL: https://instagram.hk.cn/tv/why-person-of-interest-killed-off-detective-carter-in-season-3/  
 

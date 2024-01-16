@@ -70,5 +70,5 @@ All episodes of Monarch: Legacy of Monsters are now streaming on Apple TV&#43;!
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/kurt-russell-s-monarch-legacy-of-monsters-season-1-arc-potential-season-2-return-addressed-by-monsterverse-showrunner/  
+> URL: https://instagram.hk.cn/tv/kurt-russell-s-monarch-legacy-of-monsters-season-1-arc-potential-season-2-return-addressed-by-monsterverse-showrunner/  
 

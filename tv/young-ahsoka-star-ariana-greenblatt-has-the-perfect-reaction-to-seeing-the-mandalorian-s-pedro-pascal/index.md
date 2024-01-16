@@ -48,5 +48,5 @@ It&#39;s very likely the future of Star Wars will see plenty of interactions bet
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-ahsoka-star-ariana-greenblatt-has-the-perfect-reaction-to-seeing-the-mandalorian-s-pedro-pascal/  
+> URL: https://instagram.hk.cn/tv/young-ahsoka-star-ariana-greenblatt-has-the-perfect-reaction-to-seeing-the-mandalorian-s-pedro-pascal/  
 

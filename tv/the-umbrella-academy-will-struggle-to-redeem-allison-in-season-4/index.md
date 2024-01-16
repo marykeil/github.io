@@ -78,5 +78,5 @@ Only time will tell if The Umbrella Academy season 4 can successfully redeem All
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-umbrella-academy-will-struggle-to-redeem-allison-in-season-4/  
+> URL: https://instagram.hk.cn/tv/the-umbrella-academy-will-struggle-to-redeem-allison-in-season-4/  
 

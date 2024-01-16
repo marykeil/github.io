@@ -169,5 +169,5 @@ Castlevania and Castlevania: Nocturne are both streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-castlevania-tv-shows-netflix-should-make-after-nocturne/  
+> URL: https://instagram.hk.cn/tv/10-castlevania-tv-shows-netflix-should-make-after-nocturne/  
 

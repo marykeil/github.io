@@ -52,5 +52,5 @@ Theoretically, they could also try to make the effect again using another air ca
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/what-the-stargate-visual-effect-really-is-bts-detail-explained/  
+> URL: https://instagram.hk.cn/tv/what-the-stargate-visual-effect-really-is-bts-detail-explained/  
 

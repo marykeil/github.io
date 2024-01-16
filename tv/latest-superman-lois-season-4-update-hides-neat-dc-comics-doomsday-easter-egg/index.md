@@ -55,5 +55,5 @@ This meant that the unclear status of Superman &amp; Lois season 4 made the wait
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/latest-superman-lois-season-4-update-hides-neat-dc-comics-doomsday-easter-egg/  
+> URL: https://instagram.hk.cn/tv/latest-superman-lois-season-4-update-hides-neat-dc-comics-doomsday-easter-egg/  
 

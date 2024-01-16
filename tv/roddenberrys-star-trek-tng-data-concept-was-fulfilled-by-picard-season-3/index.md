@@ -55,5 +55,5 @@ Star Trek: The Next Generation &amp; Star Trek: Picard are available to stream o
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/roddenberrys-star-trek-tng-data-concept-was-fulfilled-by-picard-season-3/  
+> URL: https://instagram.hk.cn/tv/roddenberrys-star-trek-tng-data-concept-was-fulfilled-by-picard-season-3/  
 

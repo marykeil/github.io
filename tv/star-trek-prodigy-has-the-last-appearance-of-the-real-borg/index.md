@@ -61,5 +61,5 @@ Star Trek: Prodigy season 1 is available to stream on Netflix. Season 2 will air
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigy-has-the-last-appearance-of-the-real-borg/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigy-has-the-last-appearance-of-the-real-borg/  
 

@@ -87,5 +87,5 @@ Silo season 1 asked two main questions; what really happens when characters leav
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/silo-season-2-renewal-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/silo-season-2-renewal-cast-story-everything-we-know/  
 

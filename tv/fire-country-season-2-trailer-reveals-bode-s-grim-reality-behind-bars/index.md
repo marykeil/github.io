@@ -57,5 +57,5 @@ Fire Country season 2 debuts Friday, February 16 at 9 PM ET on CBS.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/fire-country-season-2-trailer-reveals-bode-s-grim-reality-behind-bars/  
+> URL: https://instagram.hk.cn/tv/fire-country-season-2-trailer-reveals-bode-s-grim-reality-behind-bars/  
 

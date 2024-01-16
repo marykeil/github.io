@@ -53,5 +53,5 @@ While exact details about the spinoff&#39;s story haven&#39;t been revealed yet,
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-spinoff-confirmation-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-spinoff-confirmation-everything-we-know/  
 

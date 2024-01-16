@@ -62,5 +62,5 @@ Star Trek: The Next Generation is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/tv-changed-for-the-better-thanks-to-star-trek-the-next-generation/  
+> URL: https://instagram.hk.cn/tv/tv-changed-for-the-better-thanks-to-star-trek-the-next-generation/  
 

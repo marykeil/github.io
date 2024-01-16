@@ -194,5 +194,5 @@ All nine seasons of Scrubs are available to stream on Hulu.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-janitor-s-10-funniest-scrubs-quotes-that-were-definitely-lies/  
+> URL: https://instagram.hk.cn/tv/the-janitor-s-10-funniest-scrubs-quotes-that-were-definitely-lies/  
 

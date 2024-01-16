@@ -40,5 +40,5 @@ Chicago Med season 9 debuts Wednesday, January 17 at 8 PM ET on NBC.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chicago-med-season-9-time-jump-revealed/  
+> URL: https://instagram.hk.cn/tv/chicago-med-season-9-time-jump-revealed/  
 

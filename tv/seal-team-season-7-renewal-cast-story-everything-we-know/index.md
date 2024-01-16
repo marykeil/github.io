@@ -93,5 +93,5 @@ SEAL Team season 7 is confirmed, but its arrival was also part of a major shakeu
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/seal-team-season-7-renewal-cast-story-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/seal-team-season-7-renewal-cast-story-everything-we-know/  
 

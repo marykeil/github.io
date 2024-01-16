@@ -69,5 +69,5 @@ However, as Big Bang Theory reveals, this is where things get tough for Georgie 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-secretly-revealed-why-mandy-georgie-broke-up/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-secretly-revealed-why-mandy-georgie-broke-up/  
 

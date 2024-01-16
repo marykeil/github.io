@@ -55,5 +55,5 @@ Star Trek: The Next Generation is available to stream on Paramount&#43;. Star Tr
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-generations-enterprise-crash-origin-came-from-a-rejected-tng-episode/  
+> URL: https://instagram.hk.cn/tv/star-trek-generations-enterprise-crash-origin-came-from-a-rejected-tng-episode/  
 

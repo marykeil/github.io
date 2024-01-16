@@ -52,5 +52,5 @@ The Last of Us season 1&#39;s success with guest stars proves why season 2 needs
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-2024-emmys-prove-the-last-of-us-season-2-needs-to-repeat-season-1-s-best-stories/  
+> URL: https://instagram.hk.cn/tv/the-2024-emmys-prove-the-last-of-us-season-2-needs-to-repeat-season-1-s-best-stories/  
 

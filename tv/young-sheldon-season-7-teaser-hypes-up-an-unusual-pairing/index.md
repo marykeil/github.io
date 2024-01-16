@@ -57,5 +57,5 @@ Whether Young Sheldon will be able to fix Sheldon&#39;s arc remains to be seen. 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-season-7-teaser-hypes-up-an-unusual-pairing/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-season-7-teaser-hypes-up-an-unusual-pairing/  
 

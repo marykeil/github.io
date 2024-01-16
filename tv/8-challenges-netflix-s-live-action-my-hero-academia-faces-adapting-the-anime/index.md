@@ -109,5 +109,5 @@ The My Hero Academia anime is currently streaming on Hulu and Crunchyroll.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/8-challenges-netflix-s-live-action-my-hero-academia-faces-adapting-the-anime/  
+> URL: https://instagram.hk.cn/tv/8-challenges-netflix-s-live-action-my-hero-academia-faces-adapting-the-anime/  
 

@@ -78,5 +78,5 @@ Yellowstone season 5, part 2, is set to premiere in November 2024. Tulsa King se
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/kevin-costner-s-yellowstone-exit-drama-could-happen-again-on-a-different-taylor-sheridan-show/  
+> URL: https://instagram.hk.cn/tv/kevin-costner-s-yellowstone-exit-drama-could-happen-again-on-a-different-taylor-sheridan-show/  
 

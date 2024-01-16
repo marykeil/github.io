@@ -72,5 +72,5 @@ The Harry Potter franchise faced a similar issue, with star Daniel Radcliffe bei
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-jackson-season-2-cast-challenges-addressed-by-star/  
+> URL: https://instagram.hk.cn/tv/percy-jackson-season-2-cast-challenges-addressed-by-star/  
 

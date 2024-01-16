@@ -88,5 +88,5 @@ Star Trek: Prodigy is the first TV series in the Star Trek franchise marketed to
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/5-janeways-in-star-trek-prodigy-explained/  
+> URL: https://instagram.hk.cn/tv/5-janeways-in-star-trek-prodigy-explained/  
 

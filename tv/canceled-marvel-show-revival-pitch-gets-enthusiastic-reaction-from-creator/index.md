@@ -46,5 +46,5 @@ Interestingly, the main way to improve Netflix&#39;s depiction of Iron Fist come
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/canceled-marvel-show-revival-pitch-gets-enthusiastic-reaction-from-creator/  
+> URL: https://instagram.hk.cn/tv/canceled-marvel-show-revival-pitch-gets-enthusiastic-reaction-from-creator/  
 

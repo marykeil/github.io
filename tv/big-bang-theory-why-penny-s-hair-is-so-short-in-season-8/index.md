@@ -83,5 +83,5 @@ Towards the end of The Big Bang Theory, Penny was no longer viewed as a sex obje
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/big-bang-theory-why-penny-s-hair-is-so-short-in-season-8/  
+> URL: https://instagram.hk.cn/tv/big-bang-theory-why-penny-s-hair-is-so-short-in-season-8/  
 

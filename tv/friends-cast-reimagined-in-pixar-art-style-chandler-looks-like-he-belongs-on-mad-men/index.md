@@ -55,5 +55,5 @@ Friends seasons 1-10 are streaming on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/friends-cast-reimagined-in-pixar-art-style-chandler-looks-like-he-belongs-on-mad-men/  
+> URL: https://instagram.hk.cn/tv/friends-cast-reimagined-in-pixar-art-style-chandler-looks-like-he-belongs-on-mad-men/  
 

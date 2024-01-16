@@ -84,5 +84,5 @@ It&#39;s all but confirmed that the crates Thrawn&#39;s forces brought on board 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/deep-star-wars-lore-explains-ahsoka-s-great-mothers-the-price-thrawn-paid-to-awaken-them/  
+> URL: https://instagram.hk.cn/tv/deep-star-wars-lore-explains-ahsoka-s-great-mothers-the-price-thrawn-paid-to-awaken-them/  
 

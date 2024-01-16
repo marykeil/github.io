@@ -50,5 +50,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/sword-art-online-leaving-aincrad-saved-kirito-and-asuna-s-relationship/  
+> URL: https://instagram.hk.cn/tv/sword-art-online-leaving-aincrad-saved-kirito-and-asuna-s-relationship/  
 

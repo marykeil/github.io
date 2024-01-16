@@ -71,5 +71,5 @@ True Detective: Night Country premieres on HBO on January 14, 2024.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/true-detective-season-4-rotten-tomatoes-score-debut-sets-new-series-record/  
+> URL: https://instagram.hk.cn/tv/true-detective-season-4-rotten-tomatoes-score-debut-sets-new-series-record/  
 

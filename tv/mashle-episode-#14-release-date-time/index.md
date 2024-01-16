@@ -64,5 +64,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/mashle-episode-#14-release-date-time/  
+> URL: https://instagram.hk.cn/tv/mashle-episode-#14-release-date-time/  
 

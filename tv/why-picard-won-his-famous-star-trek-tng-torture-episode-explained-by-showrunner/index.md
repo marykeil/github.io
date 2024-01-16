@@ -78,5 +78,5 @@ or
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-picard-won-his-famous-star-trek-tng-torture-episode-explained-by-showrunner/  
+> URL: https://instagram.hk.cn/tv/why-picard-won-his-famous-star-trek-tng-torture-episode-explained-by-showrunner/  
 

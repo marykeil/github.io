@@ -40,5 +40,5 @@ As the show lay dormant for a year, this new data is a great sign for Yellowston
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/yellowstone-only-aired-1-episode-in-2023-and-it-s-still-among-the-year-s-most-watched-shows/  
+> URL: https://instagram.hk.cn/tv/yellowstone-only-aired-1-episode-in-2023-and-it-s-still-among-the-year-s-most-watched-shows/  
 

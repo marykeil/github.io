@@ -78,5 +78,5 @@ The King of the Dead and his army also reside at Dwimorberg in the White Mountai
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-rings-of-power-season-2-can-solve-a-major-character-mystery-tolkien-s-lotr-never-did/  
+> URL: https://instagram.hk.cn/tv/the-rings-of-power-season-2-can-solve-a-major-character-mystery-tolkien-s-lotr-never-did/  
 

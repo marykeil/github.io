@@ -64,5 +64,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/metallic-rouge-episode-#2-release-date-time/  
+> URL: https://instagram.hk.cn/tv/metallic-rouge-episode-#2-release-date-time/  
 

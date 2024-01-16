@@ -176,5 +176,5 @@ Watch Now on Pokemon TV
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-strongest-legendary-pok%C3%A9mon-in-the-anime/  
+> URL: https://instagram.hk.cn/tv/10-strongest-legendary-pok%C3%A9mon-in-the-anime/  
 

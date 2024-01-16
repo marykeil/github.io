@@ -65,5 +65,5 @@ New episodes of Reacher arrive on Prime Video Thursdays at 7 p.m. ET/4 p.m. PT.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-season-2-episode-6-ending-death-emotional-neagly-moment-addressed-by-star/  
+> URL: https://instagram.hk.cn/tv/reacher-season-2-episode-6-ending-death-emotional-neagly-moment-addressed-by-star/  
 

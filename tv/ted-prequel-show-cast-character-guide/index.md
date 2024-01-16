@@ -131,5 +131,5 @@ Bobby Strom as Dennis the Dump Truck: The voice of Matty’s own magical living 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-prequel-show-cast-character-guide/  
+> URL: https://instagram.hk.cn/tv/ted-prequel-show-cast-character-guide/  
 

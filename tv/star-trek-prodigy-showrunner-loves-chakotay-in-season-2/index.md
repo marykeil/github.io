@@ -58,5 +58,5 @@ Star Trek: Prodigy season 1 is streaming on Netflix. Star Trek: Prodigy season 2
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigy-showrunner-loves-chakotay-in-season-2/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigy-showrunner-loves-chakotay-in-season-2/  
 

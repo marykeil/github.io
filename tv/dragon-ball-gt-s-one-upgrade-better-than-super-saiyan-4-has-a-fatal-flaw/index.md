@@ -51,5 +51,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dragon-ball-gt-s-one-upgrade-better-than-super-saiyan-4-has-a-fatal-flaw/  
+> URL: https://instagram.hk.cn/tv/dragon-ball-gt-s-one-upgrade-better-than-super-saiyan-4-has-a-fatal-flaw/  
 

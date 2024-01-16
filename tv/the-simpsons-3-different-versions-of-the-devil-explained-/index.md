@@ -74,5 +74,5 @@ This take of the character appeared again in season 23, episode 3, “Treehouse 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-simpsons-3-different-versions-of-the-devil-explained-/  
+> URL: https://instagram.hk.cn/tv/the-simpsons-3-different-versions-of-the-devil-explained-/  
 

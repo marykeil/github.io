@@ -63,5 +63,5 @@ Watch on Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/boruto-two-blue-vortex-is-the-perfect-platform-to-retcon-naruto/  
+> URL: https://instagram.hk.cn/tv/boruto-two-blue-vortex-is-the-perfect-platform-to-retcon-naruto/  
 

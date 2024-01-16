@@ -217,5 +217,5 @@ The trust he gained in their personal lives extended to his work in the lab, as 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/bones-all-of-brennan-s-interns-ranked/  
+> URL: https://instagram.hk.cn/tv/bones-all-of-brennan-s-interns-ranked/  
 

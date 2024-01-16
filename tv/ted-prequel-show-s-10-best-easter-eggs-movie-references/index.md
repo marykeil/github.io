@@ -160,5 +160,5 @@ The Ted prequel show’s most direct connection to the original movie arrives at
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-prequel-show-s-10-best-easter-eggs-movie-references/  
+> URL: https://instagram.hk.cn/tv/ted-prequel-show-s-10-best-easter-eggs-movie-references/  
 

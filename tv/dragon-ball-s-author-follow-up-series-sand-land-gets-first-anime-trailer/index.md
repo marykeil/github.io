@@ -53,5 +53,5 @@ Toriyama has been busy thanks to a demand to have him oversee various projects r
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dragon-ball-s-author-follow-up-series-sand-land-gets-first-anime-trailer/  
+> URL: https://instagram.hk.cn/tv/dragon-ball-s-author-follow-up-series-sand-land-gets-first-anime-trailer/  
 

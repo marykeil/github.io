@@ -101,5 +101,5 @@ Though he is almost assuredly gone for good, Jiraiya still left a lasting legacy
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/how-jiraiya-dies-in-naruto-shipp%C5%ABden-which-episode-it-happens/  
+> URL: https://instagram.hk.cn/tv/how-jiraiya-dies-in-naruto-shipp%C5%ABden-which-episode-it-happens/  
 

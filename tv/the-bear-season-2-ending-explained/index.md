@@ -138,5 +138,5 @@ Carmy can only make The Bear a success by allowing himself time to experience ot
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-bear-season-2-ending-explained/  
+> URL: https://instagram.hk.cn/tv/the-bear-season-2-ending-explained/  
 

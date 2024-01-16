@@ -48,5 +48,5 @@ If Ezra takes Jacen on as a Padawan, it will be a bittersweet callback. Kanan Ja
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ahsoka-season-2-needs-to-give-ezra-bridger-one-major-promotion/  
+> URL: https://instagram.hk.cn/tv/ahsoka-season-2-needs-to-give-ezra-bridger-one-major-promotion/  
 

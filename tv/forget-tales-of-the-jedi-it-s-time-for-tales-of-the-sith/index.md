@@ -50,5 +50,5 @@ For example, Tales of the Sith could show Palpatine’s training under Darth Pla
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/forget-tales-of-the-jedi-it-s-time-for-tales-of-the-sith/  
+> URL: https://instagram.hk.cn/tv/forget-tales-of-the-jedi-it-s-time-for-tales-of-the-sith/  
 

@@ -176,5 +176,5 @@ He eventually serves Aegon III as one of his regents until his death. Lord Larys
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/game-of-thrones-all-8-characters-who-survived-from-beginning-to-end/  
+> URL: https://instagram.hk.cn/tv/game-of-thrones-all-8-characters-who-survived-from-beginning-to-end/  
 

@@ -98,5 +98,5 @@ In contrast, Taika Waititi’s Simpsons cameo as himself in episode 9, “Murder
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-simpsons-season-35-repeats-a-decades-old-mistake-but-there-s-1-upside-to-it/  
+> URL: https://instagram.hk.cn/tv/the-simpsons-season-35-repeats-a-decades-old-mistake-but-there-s-1-upside-to-it/  
 

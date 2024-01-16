@@ -77,5 +77,5 @@ What would happen to Han So-hee’s character is also unclear, as Chae-ok is not
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gyeongseong-creature-season-2-is-now-inevitable-after-that-tae-sang-cliffhanger/  
+> URL: https://instagram.hk.cn/tv/gyeongseong-creature-season-2-is-now-inevitable-after-that-tae-sang-cliffhanger/  
 

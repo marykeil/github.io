@@ -55,5 +55,5 @@ Young Sheldon has started to diversify its storytelling, giving ample focus on t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/young-sheldon-confirms-big-bang-theory-also-ruined-georgie/  
+> URL: https://instagram.hk.cn/tv/young-sheldon-confirms-big-bang-theory-also-ruined-georgie/  
 

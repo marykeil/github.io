@@ -64,5 +64,5 @@ On top of that, bringing back Danny and Amy&#39;s story would completely undo ev
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/beef-creators-season-2-idea-is-the-only-way-to-avoid-ruining-danny-amys-story/  
+> URL: https://instagram.hk.cn/tv/beef-creators-season-2-idea-is-the-only-way-to-avoid-ruining-danny-amys-story/  
 

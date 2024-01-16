@@ -61,5 +61,5 @@ Mindhunter seasons 1-2 are streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/mindhunter-season-3-cancelation-gets-a-candid-response-from-bill-tench-actor/  
+> URL: https://instagram.hk.cn/tv/mindhunter-season-3-cancelation-gets-a-candid-response-from-bill-tench-actor/  
 

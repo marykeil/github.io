@@ -64,5 +64,5 @@ There are questions, of course, about the future of both MAPPA and Andraft, sinc
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chainsaw-man-director-establishes-new-anime-studio/  
+> URL: https://instagram.hk.cn/tv/chainsaw-man-director-establishes-new-anime-studio/  
 

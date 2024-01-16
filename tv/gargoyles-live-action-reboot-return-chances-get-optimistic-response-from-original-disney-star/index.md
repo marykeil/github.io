@@ -54,5 +54,5 @@ All three seasons of the original Gargoyles are available to stream on Disney&#4
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/gargoyles-live-action-reboot-return-chances-get-optimistic-response-from-original-disney-star/  
+> URL: https://instagram.hk.cn/tv/gargoyles-live-action-reboot-return-chances-get-optimistic-response-from-original-disney-star/  
 

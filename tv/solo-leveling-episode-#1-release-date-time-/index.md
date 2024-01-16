@@ -60,5 +60,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/solo-leveling-episode-#1-release-date-time-/  
+> URL: https://instagram.hk.cn/tv/solo-leveling-episode-#1-release-date-time-/  
 

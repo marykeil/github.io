@@ -57,5 +57,5 @@ Even if the pair decides to delay getting married, Chief Boden and Firehouse 51 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/chicago-fire-season-12-new-details-about-brett-s-exit-revealed-including-a-returning-casey/  
+> URL: https://instagram.hk.cn/tv/chicago-fire-season-12-new-details-about-brett-s-exit-revealed-including-a-returning-casey/  
 

@@ -66,5 +66,5 @@ Trek Geeks website: https://trekgeeks.com
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-icons-jeri-ryan-michael-dorn-doug-jones-join-amazing-trektalks-3-telethon-lineup/  
+> URL: https://instagram.hk.cn/tv/star-trek-icons-jeri-ryan-michael-dorn-doug-jones-join-amazing-trektalks-3-telethon-lineup/  
 

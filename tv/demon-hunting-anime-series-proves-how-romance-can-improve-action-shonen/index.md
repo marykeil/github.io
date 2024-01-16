@@ -64,5 +64,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/demon-hunting-anime-series-proves-how-romance-can-improve-action-shonen/  
+> URL: https://instagram.hk.cn/tv/demon-hunting-anime-series-proves-how-romance-can-improve-action-shonen/  
 

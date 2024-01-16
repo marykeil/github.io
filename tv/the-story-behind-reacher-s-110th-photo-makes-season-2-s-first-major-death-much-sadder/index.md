@@ -74,5 +74,5 @@ Reacher season 2 concludes Friday on Prime Video.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-story-behind-reacher-s-110th-photo-makes-season-2-s-first-major-death-much-sadder/  
+> URL: https://instagram.hk.cn/tv/the-story-behind-reacher-s-110th-photo-makes-season-2-s-first-major-death-much-sadder/  
 

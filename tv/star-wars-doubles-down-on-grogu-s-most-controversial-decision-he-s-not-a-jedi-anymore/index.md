@@ -62,5 +62,5 @@ Grogu&#39;s journey is far from complete, and his time as a Mandalorian apprenti
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-wars-doubles-down-on-grogu-s-most-controversial-decision-he-s-not-a-jedi-anymore/  
+> URL: https://instagram.hk.cn/tv/star-wars-doubles-down-on-grogu-s-most-controversial-decision-he-s-not-a-jedi-anymore/  
 

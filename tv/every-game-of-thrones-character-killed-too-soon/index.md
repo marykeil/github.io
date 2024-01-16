@@ -196,5 +196,5 @@ Dying in the North, before reaching King’s Landing, anti-climactically and sur
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/every-game-of-thrones-character-killed-too-soon/  
+> URL: https://instagram.hk.cn/tv/every-game-of-thrones-character-killed-too-soon/  
 

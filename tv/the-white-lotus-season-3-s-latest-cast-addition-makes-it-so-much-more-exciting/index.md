@@ -56,5 +56,5 @@ Reports claim that The White Lotus season 3 will likely premiere in 2025.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-white-lotus-season-3-s-latest-cast-addition-makes-it-so-much-more-exciting/  
+> URL: https://instagram.hk.cn/tv/the-white-lotus-season-3-s-latest-cast-addition-makes-it-so-much-more-exciting/  
 

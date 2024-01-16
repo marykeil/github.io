@@ -50,5 +50,5 @@ Dead in the Water succeeded in clearing up the many mysteries stemming from the 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/walking-dead-s-forgotten-spinoff-solved-a-fear-twd-season-7-mystery/  
+> URL: https://instagram.hk.cn/tv/walking-dead-s-forgotten-spinoff-solved-a-fear-twd-season-7-mystery/  
 

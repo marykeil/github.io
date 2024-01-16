@@ -51,5 +51,5 @@ The Wheel of Time Brandon Sanderson and Robert Jordan&#39;s expansive fantasy se
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/how-the-wheel-of-time-season-2s-unique-villain-bond-developed-explained-by-ishamael-actor/  
+> URL: https://instagram.hk.cn/tv/how-the-wheel-of-time-season-2s-unique-villain-bond-developed-explained-by-ishamael-actor/  
 

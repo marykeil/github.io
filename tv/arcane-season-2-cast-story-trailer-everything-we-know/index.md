@@ -83,5 +83,5 @@ The first trailer for Arcane season 2 arrived in January 2024, and though it was
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/arcane-season-2-cast-story-trailer-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/arcane-season-2-cast-story-trailer-everything-we-know/  
 

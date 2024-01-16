@@ -47,5 +47,5 @@ Marvel was the last, and the most high-profile employer to cut ties with Majors.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/jonathan-majors-first-tv-interview-since-guilty-verdict-getting-dropped-by-marvel-to-air-next-week/  
+> URL: https://instagram.hk.cn/tv/jonathan-majors-first-tv-interview-since-guilty-verdict-getting-dropped-by-marvel-to-air-next-week/  
 

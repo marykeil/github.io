@@ -71,5 +71,5 @@ Some viewers might prefer to see the Buffy the Vampire Slayer cast reunited, but
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-of-buffy-the-vampire-slayer-s-underused-villains-sets-up-a-perfect-spinoff/  
+> URL: https://instagram.hk.cn/tv/one-of-buffy-the-vampire-slayer-s-underused-villains-sets-up-a-perfect-spinoff/  
 

@@ -187,5 +187,5 @@ Based on Rod Serling&#39;s classic 1959 anthology series, The Twilight Zone brin
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-important-ways-the-twilight-zone-influenced-movies-tv-in-the-last-65-years/  
+> URL: https://instagram.hk.cn/tv/10-important-ways-the-twilight-zone-influenced-movies-tv-in-the-last-65-years/  
 

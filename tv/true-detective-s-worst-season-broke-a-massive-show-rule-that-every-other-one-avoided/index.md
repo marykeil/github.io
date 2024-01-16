@@ -60,5 +60,5 @@ There is a chance that True Detective season 2 being the outlier when it comes t
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/true-detective-s-worst-season-broke-a-massive-show-rule-that-every-other-one-avoided/  
+> URL: https://instagram.hk.cn/tv/true-detective-s-worst-season-broke-a-massive-show-rule-that-every-other-one-avoided/  
 

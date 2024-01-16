@@ -92,5 +92,5 @@ Marvel Spotlight&#39;s Echo brings a level of fantasism to the Choctaw creation 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/marvel-s-echo-choctaw-creation-myth-real-world-differences-explained/  
+> URL: https://instagram.hk.cn/tv/marvel-s-echo-choctaw-creation-myth-real-world-differences-explained/  
 

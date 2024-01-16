@@ -59,5 +59,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-piece-s-newest-arc-gets-surprise-streaming-announcement-from-netflix/  
+> URL: https://instagram.hk.cn/tv/one-piece-s-newest-arc-gets-surprise-streaming-announcement-from-netflix/  
 

@@ -63,5 +63,5 @@ Watch On Crunchyroll
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-piece-s-reboot-has-the-perfect-chance-to-make-one-character-truly-canon/  
+> URL: https://instagram.hk.cn/tv/one-piece-s-reboot-has-the-perfect-chance-to-make-one-character-truly-canon/  
 

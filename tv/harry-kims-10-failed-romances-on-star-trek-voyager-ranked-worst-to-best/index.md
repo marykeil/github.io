@@ -179,5 +179,5 @@ Star Trek: Voyager is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/harry-kims-10-failed-romances-on-star-trek-voyager-ranked-worst-to-best/  
+> URL: https://instagram.hk.cn/tv/harry-kims-10-failed-romances-on-star-trek-voyager-ranked-worst-to-best/  
 

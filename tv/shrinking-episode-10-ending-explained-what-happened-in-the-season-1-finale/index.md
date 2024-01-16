@@ -142,5 +142,5 @@ Watch On Apple TV&#43;
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/shrinking-episode-10-ending-explained-what-happened-in-the-season-1-finale/  
+> URL: https://instagram.hk.cn/tv/shrinking-episode-10-ending-explained-what-happened-in-the-season-1-finale/  
 

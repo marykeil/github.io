@@ -67,5 +67,5 @@ Though details haven&#39;t been revealed, the basic framework of Nine Voyages wi
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/nine-voyages-everything-we-know-about-the-house-of-the-dragon-prequel/  
+> URL: https://instagram.hk.cn/tv/nine-voyages-everything-we-know-about-the-house-of-the-dragon-prequel/  
 

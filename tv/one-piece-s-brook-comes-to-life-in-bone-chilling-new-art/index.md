@@ -66,5 +66,5 @@ Source @ripped1taliano
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-piece-s-brook-comes-to-life-in-bone-chilling-new-art/  
+> URL: https://instagram.hk.cn/tv/one-piece-s-brook-comes-to-life-in-bone-chilling-new-art/  
 

@@ -93,5 +93,5 @@ Bev has never been honest with her daughters or anyone else. This made Bev’s r
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/its-time-for-the-conners-to-say-goodbye-to-this-roseanne-star/  
+> URL: https://instagram.hk.cn/tv/its-time-for-the-conners-to-say-goodbye-to-this-roseanne-star/  
 

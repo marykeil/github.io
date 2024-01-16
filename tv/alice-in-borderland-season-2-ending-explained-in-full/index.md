@@ -128,5 +128,5 @@ However, if Alice in Borderland season 3 follows the manga, that is not what vie
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/alice-in-borderland-season-2-ending-explained-in-full/  
+> URL: https://instagram.hk.cn/tv/alice-in-borderland-season-2-ending-explained-in-full/  
 

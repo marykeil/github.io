@@ -60,5 +60,5 @@ Watch on Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/pikachu-joined-team-rocket-fought-ash-in-one-heartbreaking-pok%C3%A9mon-episode/  
+> URL: https://instagram.hk.cn/tv/pikachu-joined-team-rocket-fought-ash-in-one-heartbreaking-pok%C3%A9mon-episode/  
 

@@ -68,5 +68,5 @@ Vernestra Rwoh was first mentioned chronologically in Claudia Grey’s book, The
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/2024-will-take-star-wars-tv-where-it-has-never-gone-before/  
+> URL: https://instagram.hk.cn/tv/2024-will-take-star-wars-tv-where-it-has-never-gone-before/  
 

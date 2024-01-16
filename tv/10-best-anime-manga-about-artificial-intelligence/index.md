@@ -169,5 +169,5 @@ Read On Kodansha
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-anime-manga-about-artificial-intelligence/  
+> URL: https://instagram.hk.cn/tv/10-best-anime-manga-about-artificial-intelligence/  
 

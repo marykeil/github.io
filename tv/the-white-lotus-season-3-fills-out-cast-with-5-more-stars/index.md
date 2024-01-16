@@ -50,5 +50,5 @@ Lek Patravadi is the only one of the newcomers who is based out of Thailand. In 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-white-lotus-season-3-fills-out-cast-with-5-more-stars/  
+> URL: https://instagram.hk.cn/tv/the-white-lotus-season-3-fills-out-cast-with-5-more-stars/  
 

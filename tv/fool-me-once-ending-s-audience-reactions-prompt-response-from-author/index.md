@@ -66,5 +66,5 @@ The best Coben adaptation will, of course, be a matter of personal preference, b
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/fool-me-once-ending-s-audience-reactions-prompt-response-from-author/  
+> URL: https://instagram.hk.cn/tv/fool-me-once-ending-s-audience-reactions-prompt-response-from-author/  
 

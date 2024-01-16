@@ -161,5 +161,5 @@ At first, Loki&#39;s final words to his friends in the series before taking his 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-best-loki-season-2-quotes/  
+> URL: https://instagram.hk.cn/tv/10-best-loki-season-2-quotes/  
 

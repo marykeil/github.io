@@ -50,5 +50,5 @@ With Star Wars’ High Republic Era show, The Acolyte, on the way in 2024, the f
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ahsoka-rewrote-mandalorian-history-there-s-got-to-be-a-reason/  
+> URL: https://instagram.hk.cn/tv/ahsoka-rewrote-mandalorian-history-there-s-got-to-be-a-reason/  
 

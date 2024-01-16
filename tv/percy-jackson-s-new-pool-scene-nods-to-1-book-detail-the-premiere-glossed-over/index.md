@@ -78,5 +78,5 @@ New episodes of Percy Jackson and the Olympians premiere every Tuesday on Disney
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/percy-jackson-s-new-pool-scene-nods-to-1-book-detail-the-premiere-glossed-over/  
+> URL: https://instagram.hk.cn/tv/percy-jackson-s-new-pool-scene-nods-to-1-book-detail-the-premiere-glossed-over/  
 

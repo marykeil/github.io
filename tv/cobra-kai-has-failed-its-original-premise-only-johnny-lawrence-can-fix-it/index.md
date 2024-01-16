@@ -63,5 +63,5 @@ Cobra Kai is streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/cobra-kai-has-failed-its-original-premise-only-johnny-lawrence-can-fix-it/  
+> URL: https://instagram.hk.cn/tv/cobra-kai-has-failed-its-original-premise-only-johnny-lawrence-can-fix-it/  
 

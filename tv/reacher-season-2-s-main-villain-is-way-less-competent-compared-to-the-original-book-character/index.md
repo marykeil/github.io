@@ -94,5 +94,5 @@ Reacher had to make AM more lethal - even at the cost of undoing his smooth oper
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/reacher-season-2-s-main-villain-is-way-less-competent-compared-to-the-original-book-character/  
+> URL: https://instagram.hk.cn/tv/reacher-season-2-s-main-villain-is-way-less-competent-compared-to-the-original-book-character/  
 

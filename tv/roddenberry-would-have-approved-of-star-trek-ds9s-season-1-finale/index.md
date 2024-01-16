@@ -67,5 +67,5 @@ All episodes of Star Trek: Deep Space Nine are streaming now on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/roddenberry-would-have-approved-of-star-trek-ds9s-season-1-finale/  
+> URL: https://instagram.hk.cn/tv/roddenberry-would-have-approved-of-star-trek-ds9s-season-1-finale/  
 

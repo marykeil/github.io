@@ -49,5 +49,5 @@ Fool Me Once is not the first collaboration between Coben, who executive produce
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-s-new-thriller-dominates-the-global-top-10-chart/  
+> URL: https://instagram.hk.cn/tv/netflix-s-new-thriller-dominates-the-global-top-10-chart/  
 

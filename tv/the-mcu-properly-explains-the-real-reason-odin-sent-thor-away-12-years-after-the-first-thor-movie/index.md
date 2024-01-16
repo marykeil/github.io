@@ -52,5 +52,5 @@ Interestingly, despite making the right decision with Hela, What If...Hela Found
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mcu-properly-explains-the-real-reason-odin-sent-thor-away-12-years-after-the-first-thor-movie/  
+> URL: https://instagram.hk.cn/tv/the-mcu-properly-explains-the-real-reason-odin-sent-thor-away-12-years-after-the-first-thor-movie/  
 

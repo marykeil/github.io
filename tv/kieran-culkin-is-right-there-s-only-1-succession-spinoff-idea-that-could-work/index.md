@@ -67,5 +67,5 @@ Sources: Variety
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/kieran-culkin-is-right-there-s-only-1-succession-spinoff-idea-that-could-work/  
+> URL: https://instagram.hk.cn/tv/kieran-culkin-is-right-there-s-only-1-succession-spinoff-idea-that-could-work/  
 

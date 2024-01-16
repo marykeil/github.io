@@ -176,5 +176,5 @@ Most Power Rangers seasons are streaming on Power Rangers&#39; official YouTube 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/10-power-rangers-moments-from-the-1990s-that-are-hard-to-watch-now/  
+> URL: https://instagram.hk.cn/tv/10-power-rangers-moments-from-the-1990s-that-are-hard-to-watch-now/  
 

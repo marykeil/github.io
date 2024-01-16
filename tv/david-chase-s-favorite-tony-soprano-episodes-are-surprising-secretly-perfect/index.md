@@ -79,5 +79,5 @@ Chase&#39;s choice, as well as the episodes themselves, are a clear reflection o
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/david-chase-s-favorite-tony-soprano-episodes-are-surprising-secretly-perfect/  
+> URL: https://instagram.hk.cn/tv/david-chase-s-favorite-tony-soprano-episodes-are-surprising-secretly-perfect/  
 

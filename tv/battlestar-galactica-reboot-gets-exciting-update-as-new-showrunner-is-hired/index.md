@@ -52,5 +52,5 @@ With Simonds now tasked with helming the next reinvention of Battlestar Galactic
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/battlestar-galactica-reboot-gets-exciting-update-as-new-showrunner-is-hired/  
+> URL: https://instagram.hk.cn/tv/battlestar-galactica-reboot-gets-exciting-update-as-new-showrunner-is-hired/  
 

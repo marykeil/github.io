@@ -237,5 +237,5 @@ The 2024 Golden Globes are the first to feature the categories &#34;Cinematic an
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/golden-globes-2024-winners-revealed/  
+> URL: https://instagram.hk.cn/tv/golden-globes-2024-winners-revealed/  
 

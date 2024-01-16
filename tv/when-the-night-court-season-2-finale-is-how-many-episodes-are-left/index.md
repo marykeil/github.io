@@ -71,5 +71,5 @@ New episodes of Night Court air on NBC and stream exclusively on Peacock.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/when-the-night-court-season-2-finale-is-how-many-episodes-are-left/  
+> URL: https://instagram.hk.cn/tv/when-the-night-court-season-2-finale-is-how-many-episodes-are-left/  
 

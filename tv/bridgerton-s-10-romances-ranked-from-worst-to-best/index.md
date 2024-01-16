@@ -145,5 +145,5 @@ Queen Charlotte and King George’s romance started sweet but took a tragic turn
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/bridgerton-s-10-romances-ranked-from-worst-to-best/  
+> URL: https://instagram.hk.cn/tv/bridgerton-s-10-romances-ranked-from-worst-to-best/  
 

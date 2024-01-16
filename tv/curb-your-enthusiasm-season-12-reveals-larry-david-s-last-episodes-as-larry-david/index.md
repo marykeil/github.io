@@ -59,5 +59,5 @@ Curb Your Enthusiasm season 12 will carry on the show&#39;s tradition of welcomi
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/curb-your-enthusiasm-season-12-reveals-larry-david-s-last-episodes-as-larry-david/  
+> URL: https://instagram.hk.cn/tv/curb-your-enthusiasm-season-12-reveals-larry-david-s-last-episodes-as-larry-david/  
 

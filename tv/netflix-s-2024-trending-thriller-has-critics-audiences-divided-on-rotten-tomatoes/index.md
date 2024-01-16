@@ -49,5 +49,5 @@ All episodes of Fool Me Once are now streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/netflix-s-2024-trending-thriller-has-critics-audiences-divided-on-rotten-tomatoes/  
+> URL: https://instagram.hk.cn/tv/netflix-s-2024-trending-thriller-has-critics-audiences-divided-on-rotten-tomatoes/  
 

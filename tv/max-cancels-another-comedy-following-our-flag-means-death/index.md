@@ -46,5 +46,5 @@ Max is unlikely to give up on comedies completely. But like Peacock and Starz, i
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/max-cancels-another-comedy-following-our-flag-means-death/  
+> URL: https://instagram.hk.cn/tv/max-cancels-another-comedy-following-our-flag-means-death/  
 

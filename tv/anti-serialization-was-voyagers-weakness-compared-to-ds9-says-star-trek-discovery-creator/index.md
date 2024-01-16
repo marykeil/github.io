@@ -59,5 +59,5 @@ Star Trek: Voyager is streaming on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/anti-serialization-was-voyagers-weakness-compared-to-ds9-says-star-trek-discovery-creator/  
+> URL: https://instagram.hk.cn/tv/anti-serialization-was-voyagers-weakness-compared-to-ds9-says-star-trek-discovery-creator/  
 

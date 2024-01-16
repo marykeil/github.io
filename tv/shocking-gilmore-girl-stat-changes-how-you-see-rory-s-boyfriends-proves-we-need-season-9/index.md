@@ -58,5 +58,5 @@ While it would be an exciting surprise for Gilmore Girls season 9 to reveal that
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/shocking-gilmore-girl-stat-changes-how-you-see-rory-s-boyfriends-proves-we-need-season-9/  
+> URL: https://instagram.hk.cn/tv/shocking-gilmore-girl-stat-changes-how-you-see-rory-s-boyfriends-proves-we-need-season-9/  
 

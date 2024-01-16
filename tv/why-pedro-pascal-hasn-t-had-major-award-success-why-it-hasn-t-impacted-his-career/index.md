@@ -77,5 +77,5 @@ Perhaps most significantly, Pascal is widely admired by fans. The star&#39;s end
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/why-pedro-pascal-hasn-t-had-major-award-success-why-it-hasn-t-impacted-his-career/  
+> URL: https://instagram.hk.cn/tv/why-pedro-pascal-hasn-t-had-major-award-success-why-it-hasn-t-impacted-his-career/  
 

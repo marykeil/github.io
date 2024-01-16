@@ -58,5 +58,5 @@ Interestingly, the way that Kirk lived out his final days was eerily similar to 
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/kirk-and-pike-have-2-tragic-star-trek-things-in-common/  
+> URL: https://instagram.hk.cn/tv/kirk-and-pike-have-2-tragic-star-trek-things-in-common/  
 

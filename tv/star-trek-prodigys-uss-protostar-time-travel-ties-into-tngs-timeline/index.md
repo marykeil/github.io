@@ -61,5 +61,5 @@ Star Trek: Prodigy season 1 is available to stream on Netflix. Star Trek: Prodig
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/star-trek-prodigys-uss-protostar-time-travel-ties-into-tngs-timeline/  
+> URL: https://instagram.hk.cn/tv/star-trek-prodigys-uss-protostar-time-travel-ties-into-tngs-timeline/  
 

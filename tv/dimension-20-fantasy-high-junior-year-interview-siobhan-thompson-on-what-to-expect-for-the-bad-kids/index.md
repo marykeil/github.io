@@ -241,5 +241,5 @@ Dimension 20: Fantasy High Junior Year is available on Dropout now, with new epi
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dimension-20-fantasy-high-junior-year-interview-siobhan-thompson-on-what-to-expect-for-the-bad-kids/  
+> URL: https://instagram.hk.cn/tv/dimension-20-fantasy-high-junior-year-interview-siobhan-thompson-on-what-to-expect-for-the-bad-kids/  
 

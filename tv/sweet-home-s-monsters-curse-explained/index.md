@@ -96,5 +96,5 @@ Sweet Home is streaming on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/sweet-home-s-monsters-curse-explained/  
+> URL: https://instagram.hk.cn/tv/sweet-home-s-monsters-curse-explained/  
 

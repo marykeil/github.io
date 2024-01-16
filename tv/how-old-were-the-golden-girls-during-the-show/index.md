@@ -81,5 +81,5 @@ Of the four Golden Girls, Sophia Petrillo is the oldest, written to be 79 at the
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/how-old-were-the-golden-girls-during-the-show/  
+> URL: https://instagram.hk.cn/tv/how-old-were-the-golden-girls-during-the-show/  
 

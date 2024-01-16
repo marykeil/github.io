@@ -60,5 +60,5 @@ Watch On Max
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/tom-s-rhomboid-bachelor-party-in-succession-explained/  
+> URL: https://instagram.hk.cn/tv/tom-s-rhomboid-bachelor-party-in-succession-explained/  
 

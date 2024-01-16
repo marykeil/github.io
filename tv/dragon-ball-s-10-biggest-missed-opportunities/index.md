@@ -135,5 +135,5 @@ Although Goku had his Grandpa Gohan, he didn&#39;t have a father or mother growi
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/dragon-ball-s-10-biggest-missed-opportunities/  
+> URL: https://instagram.hk.cn/tv/dragon-ball-s-10-biggest-missed-opportunities/  
 

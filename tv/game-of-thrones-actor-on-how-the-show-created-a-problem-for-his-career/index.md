@@ -51,5 +51,5 @@ Game of Thrones seasons 1-8 are streaming on Max.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/game-of-thrones-actor-on-how-the-show-created-a-problem-for-his-career/  
+> URL: https://instagram.hk.cn/tv/game-of-thrones-actor-on-how-the-show-created-a-problem-for-his-career/  
 

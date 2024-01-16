@@ -59,5 +59,5 @@ Eyes of Wakanda might have only recently been announced, but the MCU project wil
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/the-mcu-s-black-panther-spin-off-confirmed-everything-we-know/  
+> URL: https://instagram.hk.cn/tv/the-mcu-s-black-panther-spin-off-confirmed-everything-we-know/  
 

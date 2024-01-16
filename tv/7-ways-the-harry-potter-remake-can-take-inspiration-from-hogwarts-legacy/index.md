@@ -99,5 +99,5 @@ To hear the Harry Potter movies tell it, Slytherins are the most horrible people
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/7-ways-the-harry-potter-remake-can-take-inspiration-from-hogwarts-legacy/  
+> URL: https://instagram.hk.cn/tv/7-ways-the-harry-potter-remake-can-take-inspiration-from-hogwarts-legacy/  
 

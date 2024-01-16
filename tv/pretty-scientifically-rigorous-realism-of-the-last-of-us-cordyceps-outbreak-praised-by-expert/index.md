@@ -43,5 +43,5 @@ The Last of Us season 2 arguably does not need more zombies and more action, giv
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/pretty-scientifically-rigorous-realism-of-the-last-of-us-cordyceps-outbreak-praised-by-expert/  
+> URL: https://instagram.hk.cn/tv/pretty-scientifically-rigorous-realism-of-the-last-of-us-cordyceps-outbreak-praised-by-expert/  
 

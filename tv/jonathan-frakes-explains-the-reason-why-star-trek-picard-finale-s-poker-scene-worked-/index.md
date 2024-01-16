@@ -58,5 +58,5 @@ Star Trek: Picard season 3 is available to stream on Paramount&#43;.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/jonathan-frakes-explains-the-reason-why-star-trek-picard-finale-s-poker-scene-worked-/  
+> URL: https://instagram.hk.cn/tv/jonathan-frakes-explains-the-reason-why-star-trek-picard-finale-s-poker-scene-worked-/  
 

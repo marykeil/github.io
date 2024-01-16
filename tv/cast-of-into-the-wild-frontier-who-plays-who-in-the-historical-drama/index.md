@@ -107,5 +107,5 @@ Watch On Amazon Prime Video
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/cast-of-into-the-wild-frontier-who-plays-who-in-the-historical-drama/  
+> URL: https://instagram.hk.cn/tv/cast-of-into-the-wild-frontier-who-plays-who-in-the-historical-drama/  
 

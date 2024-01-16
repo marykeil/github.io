@@ -53,5 +53,5 @@ Sources: IMDb, Rotten Tomatoes
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/ted-lasso-s-lowest-rated-episode-is-also-one-of-the-show-s-most-important/  
+> URL: https://instagram.hk.cn/tv/ted-lasso-s-lowest-rated-episode-is-also-one-of-the-show-s-most-important/  
 

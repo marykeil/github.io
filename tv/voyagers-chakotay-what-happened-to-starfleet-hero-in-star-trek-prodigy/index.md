@@ -85,5 +85,5 @@ Star Trek: Prodigy season 1 is streaming now on Netflix.
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/voyagers-chakotay-what-happened-to-starfleet-hero-in-star-trek-prodigy/  
+> URL: https://instagram.hk.cn/tv/voyagers-chakotay-what-happened-to-starfleet-hero-in-star-trek-prodigy/  
 

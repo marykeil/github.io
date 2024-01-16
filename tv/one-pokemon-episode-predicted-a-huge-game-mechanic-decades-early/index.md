@@ -59,5 +59,5 @@ WATCH ON NETFLIX
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  
-> URL: http://localhost:1313/tv/one-pokemon-episode-predicted-a-huge-game-mechanic-decades-early/  
+> URL: https://instagram.hk.cn/tv/one-pokemon-episode-predicted-a-huge-game-mechanic-decades-early/  
 
