@@ -21,6 +21,6 @@ The Hunger Games draws significant inspiration from the Roman Empire, specifical
 
 ---
 
-> Author: [instagram.hk.cn](https://instagram.hk.cn/)  
+> Author: [Ella](https://instagram.hk.cn/)  
 > URL: http://localhost:1313/movies/8-hunger-games-character-names-that-foreshadowed-their-roles-in-the-story/  
 

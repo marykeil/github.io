@@ -1,0 +1,10 @@
+<rss xmlns:atom="http://www.w3.org/2005/Atom" version="2.0">
+  <channel>
+    <title>欢迎来到Instagram.hk.cn</title>
+    <link>http://localhost:1313/zh-cn/</link>
+    <description>Instagram.hk.cn</description>
+    <generator>Hugo -- gohugo.io</generator><language>zh-CN</language><managingEditor>orangemonkey001@outlook (Ella)</managingEditor>
+      <webMaster>orangemonkey001@outlook (Ella)</webMaster><copyright>Instagram.hk.cn</copyright>
+      <atom:link href="http://localhost:1313/zh-cn/index.xml" rel="self" type="application/rss+xml" />
+    </channel>
+</rss>
