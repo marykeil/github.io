@@ -7,9 +7,10 @@
 
   Karine Martins claims to have a new fiancé and is expecting a baby, taking a dig at her ex-husband Paul.   Fans speculate that Paul may have posted the announcement on Karine&#39;s social media accounts without her knowledge.   Karine later clarifies that she is not pregnant, but the man in question is simply a good friend, and asks fans not to engage with Paul.  
 
-![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2023/09/90-day-fianc-s-karine-alludes-to-paul-s-death-in-heartbreaking-video.jpg)
+![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2024/01/90-day-fianc-_-karine-martins-reveals-alleged-new-man-baby-daddy-in-shocking-update.jpg)
 
 ## Literature Review
+
 90 Day Fiancé star Karine Martins allegedly reveals the name of the new man in her life before claiming that she&#39;s also pregnant with his baby.
 
 
@@ -27,7 +28,7 @@ Karine was linked to Bachelorette alum Josh Seiter in November 2022 but has been
 
 “This is my real fiancé and yes I am pregnant with his baby,” the caption read. “Go f*** yourself Paul. This is a real man and he will kill you if you f*** with me anymore!!!!” the message. Karine had added a screenshot of the Facebook profile of a man named “Michael Rome Scoccola.”
 
-                  20 Best Reality TV Shows Right Now   Television is being impacted by the ongoing entertainment industry strikes, leaving many turning to reality TV. What are the best shows right now?    
+                  20 Best Reality TV Shows Right Now   Television is being impacted by the ongoing entertainment industry strikes, leaving many turning to reality TV. What are the best shows right now?   
 
 
 
