@@ -20,7 +20,7 @@ Dungeons &amp; Dragons
 
 
 2024 is set to be a big year for Dungeons &amp; Dragons rule changes, and the transition will be a lot easier for players who get accustomed to some of the more major ones ahead of time. The fifth edition of DnD has undergone some evolution over the years, but mostly in a carefully managed way, with more robust class options or new playable races being drip-fed across a number of books. With the advent of the supposedly perpetual One D&amp;D, however, a sweeping overhaul is happening that could significantly alter the balance of characters or campaigns.
-The2024 DnD changes have undergone plenty of evolution through playtesting so far, as Wizards of the Coast pushes major shake-ups out through Unearthed Arcana releases that allow the community to check them out and respond. Most recently, Playtest 8 altered barbarians, druids, and monks, and switched up the abilities of some spells. There aren&#39;t any hard dates yet for the release of new rulebooks, so more ideas could be revealed or shifted around before things are finalized, but the picture of what DnD will be after 2024 is becoming clearer and clearer.
+The 2024 DnD changes have undergone plenty of evolution through playtesting so far, as Wizards of the Coast pushes major shake-ups out through Unearthed Arcana releases that allow the community to check them out and respond. Most recently, Playtest 8 altered barbarians, druids, and monks, and switched up the abilities of some spells. There aren&#39;t any hard dates yet for the release of new rulebooks, so more ideas could be revealed or shifted around before things are finalized, but the picture of what DnD will be after 2024 is becoming clearer and clearer.
             
  
  Even After Baldur&#39;s Gate 3, D&amp;D Games Might Be In Trouble 
@@ -171,7 +171,8 @@ Backgrounds aren&#39;t the most robust element of DnD 5e, gesturing at vague asp
 Spells Like Cure Wounds Get Extra Dice
         
 
-Healing in Dungeons &amp; Dragons combat can sometimes feel like a nearly futile exercise, especially when a character gets trapped in a loop of getting downed and popping back up because the incoming damage is greater than the healing. Playtest 8 introduced changes to combat healing spells that add extra dice to cure wounds, healing word, mass cure wounds, and mass healing word, significantly buffing classes like clerics. This might make some fights go on longer, but the biggest thing for players to rethink is risk management in battle. 
+Healing in Dungeons &amp; Dragons combat can sometimes feel like a nearly futile exercise, especially when a character gets trapped in a loop of getting downed and popping back up because the incoming damage is greater than the healing. Playtest 8 introduced changes to combat healing spells that add extra dice to cure wounds, healing word, mass cure wounds, and mass healing word, significantly buffing classes like clerics. This might make some fights go on longer, but the biggest thing for players to rethink is risk management in battle.
+
 
 ---
 

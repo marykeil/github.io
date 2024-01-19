@@ -339,6 +339,7 @@ Debuted Chapter #38 of the Manga &amp; Episode #21 of Naruto
 Might Guy may fall into the same category as Jiraiya — a shinobi who appeared to be extremely silly on the surface, but was immensely powerful. Guy Sensei is a fan-favorite ninja whose hijinks make him appear as a less formidable opponent than he is, but being underestimated by his foes might only made him all the more dangerous.
 Being a master of taijutsu, Guy was simply unmatched in fighting ability among the Naruto characters. However, with little skill in ninjutsu or genjutsu to speak of, he always needed to work twice as hard in order to succeed as a Leaf Village shinobi. Guy’s ability to open all Eight Gates — points within the body that limit the overall flow of chakra — set him apart from the rest, and, as a result, this ninja was able to take the likes of Madara Uchiha to the brink in their head-to-head battle.
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

@@ -21,13 +21,13 @@ She was one of the many casualties of the Paranormal Liberation War, but how did
 
 
 
-U.A. High School boasts one of the best training programs in the world and has a faculty full of experienced superheroes. One of the faculty members is a superhero named Midnight (civilian name: Nemuri Kayama) who teaches a subject referred to as “modern hero art history” and has a quirk known as “Somnambulist” which gives her the ability to emit a sleep-inducing aroma from her bare skin. With her flirty personality, revealing attire, and dominatrix tendencies, Midnight is one of My Hero Academia’s more sexualized characters and as such is a fan favorite among certain sections of the series’ audience.
+U.A. High School boasts one of the best training programs in the world and has a faculty full of experienced superheroes. One of the faculty members is a superhero named Midnight (civilian name: Nemuri Kayama) who teaches modern hero art history and has a quirk known as Somnambulist, which gives her the ability to emit a sleep-inducing aroma. With her flirty personality and revealing attire Midnight is one of My Hero Academia’s more sexualized characters, and, as such, is a fan favorite among certain sections of the series’ audience. Unfortunately for Midnight, her time was limited.
 
 
  Midnight Died During A Paranormal Liberation Front Ambush 
           
 
-Unfortunately for Midnight fans, her time on My Hero Academia was limited. During the manga’s Paranormal Liberation War arc, fellow superhero Hawks learned the villainous Paranormal Liberation Front group intended to launch attacks on several major cities with the aim of destroying hero society. A team of superheroes, including My Hero Academia&#39;s Midnight, were instructed to storm the Paranormal Liberation Front headquarters and arrest its members, but the mission soon proved to be Midnight’s curtain call.
+During the manga’s Paranormal Liberation War arc, fellow superhero Hawks learned the villainous Paranormal Liberation Front group intended to launch attacks on several major cities with the aim of destroying hero society. A team of superheroes, including My Hero Academia&#39;s Midnight, were instructed to storm the Paranormal Liberation Front headquarters and arrest its members, but the mission soon proved to be Midnight’s curtain call.
 
 
 
@@ -37,9 +37,9 @@ A battle between heroes and villains ensued and My Hero Academia chapter 278 fol
 
 
  Midnight&#39;s Lasting Impact on My Hero Academia 
-          
+         
 
-Midnight&#39;s death was very hard for the students, especially those who found her body. It was their first realization that being a hero was a job where one&#39;s life really was on the line, and many of them had a hard time accepting it. Midnight was mourned alongside dozens of other heroes who lost their lives in the Paranormal Liberation War, but unfortunately, that was also the time that the public began to lose faith in the ability of heroes to keep the peace.
+ Midnight&#39;s death was very hard for the students, especially those who found her body. It was their first realization that being a hero was a job where one&#39;s life really was on the line, and many of them had a hard time accepting it. Midnight was mourned alongside dozens of other heroes who lost their lives in the Paranormal Liberation War, but unfortunately, that was also the time that the public began to lose faith in the ability of heroes to keep the peace.
 
 
 
@@ -56,8 +56,11 @@ Midnight&#39;s instructions to the students were essential to eventually stoppin
 
 
 
-What&#39;s even more disappointing is that she was hardly offered the opportunity to become an important character, either, despite her strong fan support and interesting journey. Because of this mishandled approach,Midnight&#39;s death in My Hero Academia will always feel unsatisfying.
+What&#39;s even more disappointing is that Midnight was hardly offered the opportunity to become an important character, either, despite her strong fan support and interesting journey. Because of this mishandled approach, Midnight&#39;s death in My Hero Academia will always feel unsatisfying.
 
+Watch on Crunchyroll
+
+              My Hero Academia  ActionSuperheroAnimation In My Hero Academia, some humans have superpowers called quirks. Izuku Midoriya, nicknamed Deku, is not one of them. Deku has always idolized heroes like the number one hero, All Might, and since he was a child, he has always wanted to be a hero. However, his lack of a quirk has always held him back, but a chance encounter with All Might after discovering a classmate in danger sets Deku on the path to becoming a true hero. My Hero Academia centers around Deku and a class of heroes-in-training at UA. This school shapes young quirk users into future heroes through fake rescue missions, combat training, and other hero-tempering tasks. With young Deku inheriting the &#34;One-For-All&#34; quirk, he will learn what it means to be a true hero while facing off with dastardly supervillains.    Release Date    April 3, 2016     Cast    Aoi Yuki , Ayane Sakura , Christopher R. Sabat , Yûki Kaji , Nobuhiko Okamoto , Luci Christian , David Matranga , Justin Briner , Kenta Miyake , Clifford Chapin , Daiki Yamashita     Seasons    5     Website    https://www.funimation.com/shows/my-hero-academia/     Franchise    My Hero Academia     Characters By    Kohei Horikoshi     Distributor    FUNimation Entertainment     Main Characters    Tsuyu Asui, Katsuki Bakugo, Ochaco Uraraka, Izuku Midoriya, Shoto Todoroki, All Might     Production Company    Bones     Story By    Kōhei Horikoshi, Yōsuke Kuroda     Number of Episodes    113      
 
 
 ---

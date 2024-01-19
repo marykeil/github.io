@@ -133,7 +133,8 @@ Brand-New Side Stories In Persona 3 Reload
 
 
 Persona 3 Reload also includes new story content, and chief among that is the addition of Link Episodes. Link Episodes are short branching side missions, each of which focuses on a particular character. Both the core members of SEES and others, like Chidori, Takaya, and Ryoji, are up for exploration in Link Episodes. These add more depth to Persona 3 Reload&#39;s side characters, and give players an opportunity to see the story from a different perspective.
-Each Link Episode is accessible for a limited time only and entirely missable. As a result, it&#39;s best to take on Link Episodes as soon as they become available. 
+Each Link Episode is accessible for a limited time only and entirely missable. As a result, it&#39;s best to take on Link Episodes as soon as they become available.
+
 
 
 

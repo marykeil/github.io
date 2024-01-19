@@ -97,7 +97,8 @@ Original Series Written &amp; Illustrated by Ji-Hun Jeong
 
 As a victim of continuous cruel bullying, Yu&#39;s experiences made him apathetic, to the point where he simply tolerates the idea of being beaten by others, despite having the ability to easily dodge their attacks. Everything changes when K, an experienced boxing trainer who trained several world champions, takes note of Yu and senses his unrealized potential. The moment Yu accepts K&#39;s offer marks the beginning of his journey in the complicated world of professional boxing, as well as the start of his evolution as a person.
 The Boxer is a deeply reflective and inspiring title that effortlessly blends dynamic action scenes with emotional ones. Though it may seem like a typical sports story of an underdog aiming for the top at first glance, it eventually reveals itself to be much more than what is presented on a surface level. Beyond its apparent story lies a profound character-driven drama, which explores themes of meaning, humanity, and overcoming hardships.
-Ji-Hun Jeong, the author of The Boxer, also created The Horizon, another highly regarded title. 
+Ji-Hun Jeong, the author of The Boxer, also created The Horizon, another highly regarded title.
+
 
 Read on Webtoon
 
@@ -143,7 +144,8 @@ Original Series Written by Carnby Kim &amp; Illustrated by Yeong-Chan Hwang
 
 Jin Seon lives a troubled life, ruthlessly bullied at school by those who deem him too weak to stand up for himself. However, what he fears much more than the bullies is his own father, whose reputation as a respectable businessman and altruistic person is nothing but a disguise, meant to conceal his true nature. Unbeknownst to anyone else, Dong-Soo Seon is a sociopathic serial killer, who forces his son to participate in his horrific acts. But when he finally turns his attention to Kyun Yoon, a new transfer student, Jin may just find the courage to fight back.
 As one of the best horror manhwa, Bastard is a one-of-a-kind psychological thriller that will certainly keep readers on the edge of their seats. Horrifying yet captivating at the same time, the story follows some of the medium&#39;s most loathsome and realistic characters to provide a riveting experience full of unpredictable developments. Naturally, the art style suits the experience as well, contributing to the dark and depressing atmosphere.
-Carnby Kim, the one behind Bastard&#39;s story, also authored several other similarly enjoyable horror titles, including Sweet Home, Pigpen, and Shotgun Boy. 
+Carnby Kim, the one behind Bastard&#39;s story, also authored several other similarly enjoyable horror titles, including Sweet Home, Pigpen, and Shotgun Boy.
+
 
 Read on Webtoon
 
@@ -184,7 +186,8 @@ Webtoon has a little of something for everyone with well over a million titles t
 
 
 
-Gyeong-Chal Han, the creator of Spirit Fingers, also authored Our Beloved Summer, a similar romance title that fans are likely to appreciate. 
+Gyeong-Chal Han, the creator of Spirit Fingers, also authored Our Beloved Summer, a similar romance title that fans are likely to appreciate.
+
 
 Read on Webtoon
 
@@ -206,9 +209,11 @@ Based on the Web Novel by Chu-Gong, Written by Hyeon-Gun, &amp; Illustrated by S
 
 When the Gate suddenly appeared, connecting the human world with that of magic, the threat of monsters terrified the world. However, to combat these beasts, people received special powers, marking the birth of the Hunters. Yet not all Hunters are equal, as abilities and skills vary drastically. Initially known as one of the weakest Hunters, Jin-U Seong receives a mysterious quest after nearly facing certain death, thus becoming the Player of the System and gaining the ability to evolve beyond any known limits.
 While stories about worlds changed by invading monsters and heroes who gradually grow from pathetically weak to impossibly strong are not uncommon when it comes to manhwa, Solo Leveling is one of the best examples of a power fantasy, proving that such tropes only find success because they are genuinely entertaining. Having rightfully earned its popularity as a brilliant action-adventure title, Solo Leveling is undoubtedly one of the best completed manhwa, which no fan of the medium should overlook.
-Much to the delight of fans, a highly successful anime adaptation of Solo Leveling is currently being released. 
+Much to the delight of fans, a highly successful anime adaptation of Solo Leveling is currently being released.
 
-Read on Tapas 
+
+Read on Tapas
+
 
 ---
 

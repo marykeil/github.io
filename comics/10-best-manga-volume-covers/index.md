@@ -159,6 +159,7 @@ By Masashi Kishimoto
 Even after 70 volumes and hundreds of chapters of incredible art, Kishimito&#39;s drawings were as gorgeous to look at as ever. The 70th volume was especially visually appealing, featuring Indra and Ashura, Madara and Hashirama, and Naruto and Sasuke, with Hagoromo at the center. This powerful piece was a comparison of the most powerful shinobi and enemies who were closer than blood, but their relationship turned sour. The genius and cold-hearted Indra reincarnated as Madara and Sasuke, while the hardworking and kind Ashura reincarnated as Hashirama and Naruto, showing that Naruto and Sasuke&#39;s fate had already played out two times, but they also had the chance to do it differently.
 Available Through Manga Plus
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

@@ -187,6 +187,7 @@ An original series directed by Shinbo Akiyuki and Miyamoto Yukihiro
 Puella Magi Madoka Magica is a fantasy magical girl anime that begins as any other series of the genre would, with protagonist Kaname Madoka awakening a colorful transformation and powerful magic through a mysterious white cat named Kyuubey. However, the series takes a quick and serious turn, as the world of fantasy is plagued by witches that offer a cruel and frightening reality. In contrast to most magical girl anime, Madoka Magica leans into the grotesque and weird, utilizing disorienting depictions of the witches&#39; world. Ultimately, the series completely flips the magical girl genre in a way that not only questions consumerism, but challenges the optimistic notions of fantasy worlds.
 Watch Now
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

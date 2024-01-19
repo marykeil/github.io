@@ -74,7 +74,8 @@ All Characters As A Bonus Action
         
 
 Another movement ability that might seem obvious is Jump, which is a bonus action in BG3. How far a character can jump is determined by their Strength score, allowing them to better position themselves in a fight. There are times when jumping over to an enemy might be better than simply moving due to a character&#39;s jump distance being greater. Jumping is a great way to gain the high ground in fights for ranged fighters for an extra plus two to attack rolls.
-Jumping has a base range of four and a half meters/15-feet and is increased by one and a half meters/5-feet for every two points of Strength a character had above 10. So Gale would have a jump distance of only 15-feet while Karlach&#39;s would be 30-feet with her Strength score of 17. 
+Jumping has a base range of four and a half meters/15-feet and is increased by one and a half meters/5-feet for every two points of Strength a character had above 10. So Gale would have a jump distance of only 15-feet while Karlach&#39;s would be 30-feet with her Strength score of 17.
+
 
 
 
@@ -104,7 +105,8 @@ Gained From Illithid Powers
 
 
 For those willing to indulge in absorbing new mind flayer tadpoles and unlocking the illithid powers they hold, then Force Tunnel is a great ability. This ability can be used as an action and allows the character to charge forward nine meters/30-feet, pushing all enemies in their path out of the way. Force Tunnel recharges on a short rest and opens up new, interesting ways to move around in a fight, as this movement does not provoke attacks of opportunity. Enemies are knocked four meters/13-feet back with no saving throws, and, best of all, any allies in the way aren&#39;t affected.
-Force Tunnel is part of the first set of illithid powers a character can unlock and is automatically unlocked if the Astral-Touched Tadpole is used. 
+Force Tunnel is part of the first set of illithid powers a character can unlock and is automatically unlocked if the Astral-Touched Tadpole is used.
+
 
 
 
@@ -144,7 +146,8 @@ Sorcerers, Wizards, Circle Of The Land Druids, Lore Bards, Oath Of Vengeance Pal
         
 
 Haste is a brilliant and well-known BG3 spell that grants targets the hastened condition. With this condition, characters gain plus two to their AC, have advantage on Dexterity saving throws, one extra action each turn, and have their movement speed doubled. Of course, all this has a downside, too, as once haste wears off, the character will be lethargic and unable to move or take action for one turn.
-The haste spell is concentration, so a better way to get the same effects is to use potions of speed, which, although only lasting three turns, do not cost a spell slot and, if thrown, can hit multiple allies. 
+The haste spell is concentration, so a better way to get the same effects is to use potions of speed, which, although only lasting three turns, do not cost a spell slot and, if thrown, can hit multiple allies.
+
 
             
  

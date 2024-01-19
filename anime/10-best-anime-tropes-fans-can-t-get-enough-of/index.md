@@ -71,7 +71,8 @@ It’s hard to even count the most powerful swords in anime, belonging to heroes
 Examples: Attack on Titan: Junior High, Rock Lee &amp; His Ninja Pals, Gundam S.D.
         
 
-Chibi style is also known as &#34;S.D.&#34; or &#34;super deformation&#34; for its shrunken down designs. 
+Chibi style is also known as &#34;S.D.&#34; or &#34;super deformation&#34; for its shrunken down designs.
+
 
 Though art and character designs vary considerably from anime to anime, there are a few specific styles most people associate with the medium. One of them is “chibi” style, meaning “small.” This style is characterized by characters drawn short and cute, with oversized heads and features and small, doll-like bodies.
 Primarily, fans will find their favorite chibi-fied characters in fan art or bonus content in the official manga or anime, and sometimes in the show, proper characters will switch into chibi style for a gag. Some shows, usually spin-offs, that are more humorous and lighthearted in nature will be animated entirely in chibi style, such as Attack On Titan: Junior High or Rock Lee &amp; His Ninja Pals.
@@ -92,7 +93,8 @@ Examples: Dragon Ball, Gintama, Food Wars
 
 
 
-Possibly the earliest recorded beach episode in anime is &#34;Sea Serpent Island&#34; from the 1963 Astro Boy anime. 
+Possibly the earliest recorded beach episode in anime is &#34;Sea Serpent Island&#34; from the 1963 Astro Boy anime.
+
 
 There are many specific episode plots that anime enjoy reusing. For instance, there’s the baseball episode, the festival episode, the hot springs episode, and so on. However, one of the most beloved among them is the beach episode, in which all the heroes take a well-deserved trip to a beautiful beach.
 The best beach episodes in anime remain fan favorites to this day because of the versatility of their setting. While a few are actually plot-important, such as the beachside restaurant competition in Food Wars! or the total mood whiplash of Another, many take the opportunity for as much humor and fun as possible. Sometimes, if a beach isn’t doable, the heroes will simply hit the local pool instead, to much the same effect.
@@ -170,6 +172,7 @@ Examples: Yu-Gi-Oh, My Hero Academia, Sailor Moon
 
 This trope has been a staple of shoujo, shounen, and many other genres of anime since its very earliest days. Like the wide variety of other media it appears in, it’s fairly straightforward: absolutely nothing can overcome the power of true friendship. Heroes are always at their strongest when fighting alongside or to protect the people they love most.
 Often, it will be especially effective in comparison to the villain, usually a bitter and isolated person who either works alone or treats their companions and henchmen terribly. If the heroes bring up the power of friendship, expect them to mock it viciously, even as they’re being thoroughly trounced by it. However, what’s more fun is when even the villains are made stronger by true friendship, like My Hero Academia’s League of Villains, who despite their differences legitimately form close bonds. Friendship is at the heart of so many anime, making the power of friendship the best anime trope.
+
 
 ---
 

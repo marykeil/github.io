@@ -154,7 +154,8 @@ To this day, Identity Crisis remains one of the most contentious storylines, lar
 The Brave and the Bold #34, Gardner Fox, Joe Kubert
         
 
-If any hero has had a hard time with retcons, it’s Hawkman. The winged hero began his career as an archaeologist who was the reincarnated Prince Khufu. Decades later, however, Hawkman was revitalized as an alien warrior from the planet Thanagar. But things only got more and more complicated for Hawkman and Hawkgirl as the shifting continuities of DC’s Crises changed their origins again and again. There are too many changes in Hawkman’s history to point out one specific retcon, but every attempt to straighten out the hero’s life has left many DC Comics readers scratching their heads. 
+If any hero has had a hard time with retcons, it’s Hawkman. The winged hero began his career as an archaeologist who was the reincarnated Prince Khufu. Decades later, however, Hawkman was revitalized as an alien warrior from the planet Thanagar. But things only got more and more complicated for Hawkman and Hawkgirl as the shifting continuities of DC’s Crises changed their origins again and again. There are too many changes in Hawkman’s history to point out one specific retcon, but every attempt to straighten out the hero’s life has left many DC Comics readers scratching their heads.
+
 
 ---
 

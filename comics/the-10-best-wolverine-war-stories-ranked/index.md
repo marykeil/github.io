@@ -174,6 +174,7 @@ Wolverine Vol. 3 #58 by Marc Guggenheim and Howard Chaykin
 When Wolverine was chopping through enemy soldiers during World War I, he came across a strange man wielding a sword, who had just finished slaughtering soldiers from both sides of the conflict. Wolverine didn’t know who this man was, but he knew he had to go, so the two engaged in brutal combat that ended with Wolverine stealing the man’s sword and impaling him with it.
 Wolverine would later learn that this man was named Lazaer, which was actually an anagram for his true name: Azrael aka the Angel of Death. Wolverine literally killed Death during World War I, which is easily the coolest war story anyone could tell, making this the best of the 10 greatest Wolverine war stories in Marvel Comics.
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

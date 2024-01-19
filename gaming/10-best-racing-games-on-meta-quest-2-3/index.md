@@ -33,7 +33,8 @@ Virtual reality racing games let players get behind the wheel in chaotic or dang
 
 Virtual reality (VR) video game technology is advancing at a rapid speed, including the high-speed thrills that can come from playing some of the most popular VR racing games available on Meta Quest headsets. These games can allow people to experience what it feels like to race in death-defying conditions that can include everything from wacky power-ups with karts to combat driving with missiles. Situations like these may not be probable or recommended in real life, but in a VR world, they can be exciting and fun.
 The sensations that a person can feel when in a VR space can trick the brain into thinking that they are really there, which brings racing cars, or even boats, to a whole new level as people can feel what it is like to be behind the wheel without all the dangers. Of course, motion sickness is still a possibility, and can even be a bit more accentuated due to the fast speeds of the virtual races. These are some of the best-rated examples of VR racing games currently available for Meta Quest 2 and 3 and cover several types of gameplay.
-Beware that there is always a risk of disorientation and falling when playing any game in VR. 
+Beware that there is always a risk of disorientation and falling when playing any game in VR.
+
 
             
  
@@ -199,7 +200,8 @@ GRID Legends ramps up the arcade action and adds a touch of soap opera drama to 
 Developer: Coplanar Games
         
 
-If F-Zero and Tron were combined and made into VR, the outcome would be Void Racer: Extreme. With plenty of sci-fi graphics, futuristic racing bikes that offer realistic bike leaning, and lots of neon, there is excitement and energy in every movement. Void Racer: Extreme has a single-player Career mode, Time trials, online leaderboards, online Multiplayer modes, and bonus game modes available. Each track is individually comfort-rated to help players know what they are getting into. Void Racer: Extreme is available for all versions of the Meta Quest VR headsets. 
+If F-Zero and Tron were combined and made into VR, the outcome would be Void Racer: Extreme. With plenty of sci-fi graphics, futuristic racing bikes that offer realistic bike leaning, and lots of neon, there is excitement and energy in every movement. Void Racer: Extreme has a single-player Career mode, Time trials, online leaderboards, online Multiplayer modes, and bonus game modes available. Each track is individually comfort-rated to help players know what they are getting into. Void Racer: Extreme is available for all versions of the Meta Quest VR headsets.
+
 
 ---
 

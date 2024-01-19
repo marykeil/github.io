@@ -197,6 +197,7 @@ One of the most iconic deaths in anime must be Kamina’s death in Tengen Toppa 
 Kamina’s death, as sudden as it was, helped to push Gurren Lagann into becoming as great a story as it is, and the anime’s success, in turn, has served to make it one of the most shocking deaths in all of anime.
 Watch On Crunchyroll
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

@@ -142,7 +142,8 @@ Batman #99 (James Tynion IV, with art by Jorge Jimenez, Tomeu Morey, and Clayton
 
 
 The greatest Batsuit that the Joker has ever worn was first seen in the massive Joker War event, which began when the Joker successfully managed to steal the fortune of Bruce Wayne. This allowed the Joker to unleash chaos on the city of Gotham, unlike anything he had ever achieved before. Joker equipped his thugs with the absolute finest Wayne Tech that he had access to. While his henchmen were flying Batwings and driving Batmobiles, sowing destruction through Gotham, Joker saved the best for himself. Joker donned the &#34;Bright Knight Suit,&#34; transforming it accordingly to fit his signature sense of style.
-This suit granted Joker access to night vision, while also featuring a beacon on his chest, as well as including a knife, and explosive batarangs. He was also able to use the suit&#39;s tech as an EMP generator, to knock out radios, leading to more fear and uncertainty as communication lines were further disrupted. The suit afforded Joker the opportunity to be his peak destructive self, with little the populace of Gotham could do to stop him. This was by far the most powerful and dangerous Batsuit that Jokerhas ever worn, even allowing him to take Batman on in single combat.
+This suit granted Joker access to night vision, while also featuring a beacon on his chest, as well as including a knife, and explosive batarangs. He was also able to use the suit&#39;s tech as an EMP generator, to knock out radios, leading to more fear and uncertainty as communication lines were further disrupted. The suit afforded Joker the opportunity to be his peak destructive self, with little the populace of Gotham could do to stop him. This was by far the most powerful and dangerous Batsuit that Joker has ever worn, even allowing him to take Batman on in single combat.
+
 
 ---
 

@@ -14,7 +14,8 @@ The combat and exploration of Prince of Persia: The Lost Crown can be confusing 
 
 
 The first two quests of the game will take you through tutorial levels designed to teach you the basics behind combat in the game. Prince of Persia: TLC is a modern Metroidvania with a unique fighting system closer to the Devil May Cry series. When you progress far enough to reach The Haven hub area, you can receive additional tips about the battle from the NPC Artaban as you unlock new skills.
-Mastering Training Challenges will give you 50-100 Time Crystals, or the game&#39;s main currency, at any point when you complete them with Artaban. 
+Mastering Training Challenges will give you 50-100 Time Crystals, or the game&#39;s main currency, at any point when you complete them with Artaban.
+
 
 
 
@@ -40,7 +41,8 @@ Block and Counter Attacks
 
 Early in Prince of Persia: The Lost Crown, you will discover that nearly every enemy attack can be parried with Sargon&#39;s twin swords by pressing L2. However, the difficulty of your adventure determines how tight the timing window is to perform this defensive maneuver. Learning how long this move lasts and when it activates is crucial to understanding the fundamentals of combat before reaching the Citadel.
 Some enemies will try and hit you with a significant attack surrounded by a yellow aura, but these attacks are meant to be parried. Suppose Sargon counters a yellow attack, a small cinematic plays where you deal a ton of damage to that foe. This even works on some bosses, but keep in mind that you need to time your parry correctly to avoid taking more damage from the incoming hit than you normally would.
-An enemy that glows red right before their attack cannot be parried and will deal extra damage if you attempt to counter the unblockable move. 
+An enemy that glows red right before their attack cannot be parried and will deal extra damage if you attempt to counter the unblockable move.
+
 
 
 
@@ -93,7 +95,8 @@ More Rewards = More Items
         
 
 The natural exploration of Prince of Persia: TLC will cause you to encounter NPCs with side quests you can accept. It&#39;s recommended to add as many of these missions to your list as possible since each offers Time Crystals or Xerxes Coins as rewards. These currencies can be spent on new items or upgrades to improve Sargon&#39;s combat prowess even further during your adventure.
-You can check your Side Quests by pressing RT in the Quests tab of the main menu, which lists the mission&#39;s available rewards and a clue about where to pursue it. 
+You can check your Side Quests by pressing RT in the Quests tab of the main menu, which lists the mission&#39;s available rewards and a clue about where to pursue it.
+
 
 
 
@@ -113,7 +116,7 @@ Customize Sargon&#39;s Necklace
 
 
 Amulets are the core buffs you can apply to Sargon through special items you get by defeating bosses, finishing quests, or in chests throughout Mount Qaf. Each Amulet takes up several slots on Sargon&#39;s Necklace, allowing you to mix and match them differently. The culmination of abilities you can equip in Prince of Persia: TLC allows for surprisingly deep customization.
-Once you meet the fire goddess, Sargon can also upgrade each Amulet you find at Kaheva&#39;s Forge. You will need plenty of money to buy better enhancementsto face the growing challenges of the Citadel.
+Once you meet the fire goddess, Sargon can also upgrade each Amulet you find at Kaheva&#39;s Forge. You will need plenty of money to buy better enhancements to face the growing challenges of the Citadel.
             
  
  10 Best Time Travel Games, According To Metacritic 

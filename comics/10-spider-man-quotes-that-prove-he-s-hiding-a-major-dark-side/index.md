@@ -174,6 +174,7 @@ Amazing Spider-Man #542 by J. Michael Straczynski and Ron Garney
 This scene is by far one of the darkest in Spider-Man’s Marvel Comics history. This isn’t just Peter beating up a bad guy or even threatening to kill one of his villains, this is Spider-Man quite literally on the verge of committing murder. Wrist firmly aimed inside the Kingpin’s open mouth; what Spider-Man is threatening here is no different from someone pushing a loaded gun up to someone else’s temple, with every intention of pulling the trigger.
 &#39;Back in Black&#39; is a hardcore storyline with other moments that put Spider-Man in a less-than-friendly light, but this one isn’t just the darkest in that arc, it’s perhaps the darkest moment in Spider-Man’s entire life, and the quote accompanying it only highlights that. That’s why this is one of the 10 Spider-Man quotes that prove he’s hiding a major dark side.
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

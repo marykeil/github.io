@@ -122,7 +122,8 @@ The most valuable resource in the game
 
 
 While the majority of items you will find in The Last Of Us 2 are used to craft items you will continually use, you will also find valuable supplements that can boost Ellie&#39;s skills.
-Supplements are used to upgrade Ellie&#39;s skill tree. 
+Supplements are used to upgrade Ellie&#39;s skill tree.
+
 
 These will improve Ellie&#39;s abilities permanently, but like your weapons, you will be unable to fully upgrade every category in one play-through. Ellie has four skill trees that can be upgraded, Survival, Crafting, Stealth, and Precision.
 While they all offer game-changing upgrades by the end of the skill tree, you should focus on the first one available to you, Precision. It offers vital improvements such as extra health and an improved listen mode. However, it is its final skill Endure, that stands out, offering you a second chance in any scenario where you would normally die, it is the best upgrade you can unlock.
@@ -144,7 +145,8 @@ Find every item available
 
 
 While the story in The Last Of Us 2 remains a linear one, there are a number of vast open areas to explore. All areas don&#39;t need to be explored to progress the story, but you should take full advantage of every area to avoid missing something that could give you a huge advantage further down the road.
-Different areas offer new challenges and can reward you with training manuals, weapons, and vital supplements that can aid you in a variety of ways. 
+Different areas offer new challenges and can reward you with training manuals, weapons, and vital supplements that can aid you in a variety of ways.
+
 
 
 

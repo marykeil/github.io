@@ -181,6 +181,7 @@ Based on the manga by Monkey Punch
 Lupin III is an anime of heists, schemes, and rowdy sophistication, but most importantly, its creation witnessed the direct participation of Miyazaki Hayao. The anime first aired in 1971, predating the founding of Studio Ghibli by 14 years. This series is a rare instance of Miyazaki’s masterful insight prior to his rise to hegemonic fame. Lupin III follows protagonist Arsène Lupin III, who is the grandson of world-famous thief Arsène Lupin, as he steals his way across criminal circles, the ICPO, and the world. When searching for TV series similar to Ghibli films, there is no better choice than Lupin III because it was created by the same hands that built Ghibli.
 Watch On Crunchyroll
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

@@ -87,7 +87,7 @@ Based on the manga by Fujimaki Tadatoshi
         
 
 Much like the gag comedy subgenre of shonen, the sports genre is overlooked more often than not, and the existence of Kuroko&#39;s Basketball on Netflix proves that. The anime is an endearing story of a practically invisible high school boy named Kuroko, who was known as the legendary sixth man of his championship dominating middle school team, due to his passing and misdirection skills.
-Now in high school, Kuroko embarks on a new journey of developing his own personal basketball game and not relying on prodigy teammates as he had in middle school, growing into a team of his own founded on new camaraderie.
+Now in high school, Kuroko embarks on a new journey of developing his own personal basketball game and not relying on prodigy teammates as he had in middle school, growing into a team of his own founded on new camaraderie. 
 Watch On Netflix
 
 
@@ -190,7 +190,7 @@ Based on the manga by Togashi Yoshihiro
         
 
 The 2011 Hunter x Hunter anime is a remake of the 1999 adaptation of the same name, and it more than satiated the clambering fans of the original series. The story follows a young boy named Gon who embarks on becoming a Hunter in order to find his father, who exited his life when he was only a baby.
-Instead of despising his father, Gon is captivated by what is so interesting about being a Hunter that made his father leave him behind.Hunter x Hunter takes this sentiment and expertly crafts an adventure story like no other, organizing Gon’s journeys into a perfect flow of story arcs. Known for its ultra-complex power system, cerebral fights, and unique characters, Hunter X Hunter is still a shonen juggernaut today.
+Instead of despising his father, Gon is captivated by what is so interesting about being a Hunter that made his father leave him behind. Hunter x Hunter takes this sentiment and expertly crafts an adventure story like no other, organizing Gon’s journeys into a perfect flow of story arcs. Known for its ultra-complex power system, cerebral fights, and unique characters, Hunter X Hunter is still a shonen juggernaut today.
 Watch On Netflix
 
 
@@ -204,6 +204,7 @@ Original series directed by Anno Hideaki
 The 1995 Neon Genesis Evangelion series is a classic anime with a multiplicity of aspects, but greatly goes underappreciated as a shonen. While many consider Evangelion a seinen (young adult) anime due to its mature themes, the original series can be easily seen as a shonen too. Not only crafts unforgettable characters and an unforgiving world of EVAs and Angels, it is also the precursor to the many movies that follow, creating almost a multiverse of continuations and alternate interpretations of the original series.
 Evangelion follows the main character, Ikari Shinji, as he is thrown into a position of responsibility for the entire human race. The narrative begins as a typical shonen, but quickly diverges into internal moral battles, psychological renderings, convoluted relationships, and much more, cementing it as the number one shonen on Netflix.
 Watch On Netflix
+
 
 ---
 

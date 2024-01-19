@@ -172,6 +172,7 @@ First appears in Pokémon: Arceus and the Jewel of Life
 When Arceus was born, it willed the universe into existence and created the three Pokémon of Myth. With its godlike powers, it serves as a deity for the Pokémon world and protects it from catastrophic events. Arceus is also the only Pokémon with Multitype, which is a move that allows it to transform into any of the 18 existing types. It is sometimes classified as a Mythical Pokémon due to its extreme rarity and has a series of Plates that infuse its body with life energy. When Dialga and Palkia&#39;s worlds intersect, it&#39;s revealed that Arceus&#39; awakening caused distortions in space-time. With its near-omnipotent power, Arceus is easily the anime&#39;s strongest Legendary Pokémon.
 Watch Now on Pokemon TV
 
+
 ---
 
 > Author: [Ella](https://instagram.hk.cn/)  

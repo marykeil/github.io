@@ -107,7 +107,8 @@ Created by Nisioisin and Yuji Iwasaki
 
 Cipher Academy is one of the most exciting manga in Shonen Jump right now, but that’s not what makes it so perfect for an anime adaptation. The story follows Iroha Irohazaka as he rises in the ranks of an elite school where everything revolves around solving codes. This premise allows the series to have some of the wildest fights and arcs in Shonen manga.
 In addition, the wide cast of characters is both memorable and likable, with each having their own personalities and strengths. This series is truly one of a kind and thus needs an anime adaptation to expose its unique brand of awesomeness to a broader audience.
-Nisioisin also wrote the popular Monogatari series. 
+Nisioisin also wrote the popular Monogatari series.
+
 
 Read on Manga Plus
 
@@ -145,7 +146,8 @@ Created by Kenta Shinohara
 
 Witch Watch is a gag manga following the young witch Nico as she attends high school and slowly accrues a posse of magical creatures to protect her from the dark forces that want to use her power. Unlike some of the other manga on this list, this series is already pretty long, with over 100 chapters already released and many more seemingly on the way.
 While it is a hilarious gag manga, it also knows when to get serious with more emotional moments. It is clear the series is heavily influenced by the iconic manga Gintama and now that that anime has ended an adaptation of Witch Watch could easily fill the void it left behind.
-The series has even featured Gintama&#39;s author as a character. 
+The series has even featured Gintama&#39;s author as a character.
+
 
 Read on Manga Plus
 
@@ -188,6 +190,7 @@ Created by Yuto Suzuki
 Sakamoto Days is a superb action series following the retired hitman Sakamoto as he must reenter the world of assassins after a hit is put out on him. The series mixes humor and serious moments well and most of the cast is entertaining to watch. However, where this manga truly excels is in its epic fight scenes.
 Sakamoto Days has the best-choreographed action scenes in Shonen Jump, even beating tough competition like Jujutsu Kaisen. These fights would look incredible in animation and the series would likely be a major hit because of them. With over 100 chapters already released, and no sign of ending soon Sakamoto Days is the Shonen Jump series that needs an anime adaptation the most.
 Read on Manga Plus
+
 
 ---
 

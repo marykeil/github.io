@@ -138,7 +138,8 @@ Gino Is Not Traveling With Jasmine
         
 
 Jasmine had dreams of moving to Florida after coming to the U.S. because it reminded her of Panama thanks to its warm temperatures. Jasmine wished to start a career as a real estate agent and had no interest in teaching again. However, Jasmine is now busy preparing to launch a vegan protein product for which she attends meetings in New York City. Gino was not accompanying Jasmine, and that could have been a reason behind their supposed split. Jasmine and Gino’s 90 Day Fiancé season 10 storyline could end with them getting married, but the Tell All will reveal the truth about their relationship after the wedding.
-90 Day Fiancé airs Sundays at 8 p.m. EST on TLC. 
+90 Day Fiancé airs Sundays at 8 p.m. EST on TLC.
+
 
 
 

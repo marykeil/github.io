@@ -121,7 +121,8 @@ A giant spider who arrives unannounced at Hiraku&#39;s farm, Zabuton makes her e
 
 
  4  Kumoko - So I&#39;m a Spider, So What? 
-While Technically a Villain, Everyone Loves Kumoko Officially unnamed in the series, but commonly known as Kumoko - basically Japanese for &#34;Spider Girl&#34; - the heroine of So I&#39;m a Spider, So What? is not the first Isekai character to be reincarnated as a low-level creature, but the series nevertheless takes a novel approach to the concept. Reincarnated as a low-level monster in a high-level dungeon, Kumoko is quickly forced to rely on her natural wits, pluck, and familiarity with fantasy RPG mechanics to survive in a world where everything is trying to kill her. Despite technically being a villain, Kumoko is such an underdog and has such an enjoyable personality that she&#39;s always a sympathetic character.
+While Technically a Villain, Everyone Loves Kumoko
+Officially unnamed in the series, but commonly known as Kumoko - basically Japanese for &#34;Spider Girl&#34; - the heroine of So I&#39;m a Spider, So What? is not the first Isekai character to be reincarnated as a low-level creature, but the series nevertheless takes a novel approach to the concept. Reincarnated as a low-level monster in a high-level dungeon, Kumoko is quickly forced to rely on her natural wits, pluck, and familiarity with fantasy RPG mechanics to survive in a world where everything is trying to kill her. Despite technically being a villain, Kumoko is such an underdog and has such an enjoyable personality that she&#39;s always a sympathetic character.
 
 
 
@@ -132,7 +133,8 @@ Ohmu Represents the Natural World&#39;s Power
         
 
 Hayao Miyazaki has long embraced ecological messages in his work, and this idea is embodied in the Ohmu. Based on an original manga written by Miyazaki, Nausicaä champions both pacifism and environmentalism. The natural world of the film is embodied by the Ohmu: giant, armored, bug-like creatures that Nausicaä spends the film trying to keep in harmony with humanity despite their destructive potential. Notably, Nausicaä attempts to keep harmony both between humans and the Ohmu and between the different warring factions of humanity, with these conflicts depicted as being inextricably linked. It&#39;s only after peace is established with the Ohmu that it becomes possible between humans.
-Miyazaki&#39;s famous &#39;no cuts&#39; policy towards English translations of his films stems from the original English release of Nausicaä of the Valley of the Wind mangling the intended message. 
+Miyazaki&#39;s famous &#39;no cuts&#39; policy towards English translations of his films stems from the original English release of Nausicaä of the Valley of the Wind mangling the intended message.
+
 
 
 
@@ -172,6 +174,7 @@ Ash&#39;s Second Pokémon Created Some Tear-Jerking Moments
 The first Pokémon Ash Ketchum ever caught as part of his journey (after being gifted Pikachu), Butterfree is the central Pokémon in one of the anime&#39;s most famous episodes. &#39;Bye Bye Butterfree&#39; established the template of Ash releasing his Pokémon so they could thrive in a different environment, and is still remembered by fans as one of Pokémon&#39;s best episodes and one of the most genuinely tear-jerking storylines in the franchise.
 While nowhere near Ash&#39;s most powerful Pokémon, Butterfree was one of the anime&#39;s most stalwart characters, and provided some great moments that helped introduce the entire Pokémon world. Ash learning to catch Pokémon, utilizing status effects, and being confronted with incredibly unhelpful evolutions - like the next-to-useless Metapod - all begin with Butterfree. Years later, Ash and Butterfree would be reunited in a heartwarming episode of Journeys, providing closure and a silver lining to one of the saddest moments in the early episodes of the series.
 In most media, bugs are there to be disgusting and little else. However, in the hands of gifted anime creators they can be everything from tragic villains to cute traveling companions to the embodiment of the natural world - a fact that&#39;s perfectly exemplified by these 10 awesome anime creepy crawlies.
+
 
 ---
 

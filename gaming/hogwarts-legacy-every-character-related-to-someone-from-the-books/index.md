@@ -212,16 +212,20 @@ Voldemort&#39;s Relative
 
 Ominis Gaunt isn&#39;t like the rest of his family, who use dark magic for fun, and he&#39;s been personally subjected to the Cruciatus Curse. However, he despises the use of dark magic, unlike his family, who see it as their right to use as descendants of Salazar Slytherin. While Ominis isn&#39;t a direct ancestor of Voldemort, he&#39;s likely his great-uncle, with his sibling being speculated as the great-grandfather of Voldemort.
 It can be tough to keep track of all the characters who exist in the world of Harry Potter, especially with how much extra material has been added to the franchise outside the books and main movies. But it&#39;s usually possible to build tentative family trees for a lot of main characters - and some side characters - through names alone. And no matter how accurate the end results of those family trees are, it&#39;s fun to witness the past and guess at who may be related to whom when playing Hogwarts Legacy.
-Editor’s Note: Harry Potter creator J.K. Rowling has been accused of transphobia by those in the LGBTQ&#43; community. Although not directly involved in the development of Hogwarts Legacy, Rowling does stand to earn royalties from the game. We would like to reiterate our support for trans rights and that trans identities are valid. Support services are listed below for trans people impacted by discussions of transphobia. 
-In the USA: 
+Editor’s Note: Harry Potter creator J.K. Rowling has been accused of transphobia by those in the LGBTQ&#43; community. Although not directly involved in the development of Hogwarts Legacy, Rowling does stand to earn royalties from the game. We would like to reiterate our support for trans rights and that trans identities are valid. Support services are listed below for trans people impacted by discussions of transphobia.
+
+In the USA:
+
 Trans Lifeline: (877) 565-8860 
 The Trevor Project: 1-866-488-7386 
 
-In Canada: 
+In Canada:
+
 Trans Lifeline: (877) 330-6366 
 Youth Line: 1-800-268-9688 
 
-In the UK: 
+In the UK:
+
 Switchboard: 01273 204050 
 Mermaids: 0808 801 0400 
 
