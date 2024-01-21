@@ -21,7 +21,7 @@ These types of guessing games have been around for a long time. One of the origi
 
  
 
-Screen Rant&#39;s gaming editor shared his Wordle win from December 31st, 2023 on Twitter saying &#34;The last one of the year and a solid win-in-two!&#34;
+ Screen Rant&#39;s gaming editor shared his Wordle win from December 31st, 2023 on Twitter saying &#34;The last one of the year and a solid win-in-two!&#34;
 
 
  Every Wordle Answer in 2024 
@@ -32,7 +32,7 @@ With a new Wordle added every day, players may need a little help with the more 
 
 
 
-  Jan 19 - #944 - THING   Jan 18 - #943 - STOLE   Jan 17 - #942 - COURT   Jan 16 - #941 - BLOND   Jan 15 - #940 - LUNCH   Jan 14 - #939 - DOING   Jan 13 - #938 - HEARD   Jan 12 - #937 - ROUTE   Jan 11 - #936 - BRIEF   Jan 10 - #935 - THREW   Jan 9 - #934 - LINER   Jan 8 - #933 - FINAL   Jan 7 -#932 - STONY   Jan 6 - #931 - CABLE   Jan 5 - #930 - LUNGE   Jan 4 - #929 - SCANT   Jan 3 - #928 - TWIRL   Jan 2 - #927 - AGING   Jan 1 - #926 - MURAL  
+  Jan 20 - #945 - LARGE   Jan 19 - #944 - THING   Jan 18 - #943 - STOLE   Jan 17 - #942 - COURT   Jan 16 - #941 - BLOND   Jan 15 - #940 - LUNCH   Jan 14 - #939 - DOING   Jan 13 - #938 - HEARD   Jan 12 - #937 - ROUTE   Jan 11 - #936 - BRIEF   Jan 10 - #935 - THREW   Jan 9 - #934 - LINER   Jan 8 - #933 - FINAL   Jan 7 -#932 - STONY   Jan 6 - #931 - CABLE   Jan 5 - #930 - LUNGE   Jan 4 - #929 - SCANT   Jan 3 - #928 - TWIRL   Jan 2 - #927 - AGING   Jan 1 - #926 - MURAL  
 
 
 

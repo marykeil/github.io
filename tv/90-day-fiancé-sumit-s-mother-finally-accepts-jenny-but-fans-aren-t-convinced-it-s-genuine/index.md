@@ -7,7 +7,7 @@
 
   90 Day Fiancé fans suspect that Sumit&#39;s mother Sadhna and Jenny&#39;s happy reunion is not genuine.   Sadhna initially refused to accept Jenny as her daughter-in-law but has now turned over a new leaf.   Sumit and Jenny&#39;s 90 Day Fiancé storyline has finally received its happy ending.  
 
-![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2021/12/Sumit-Sadhna-Mom-Jenny-Instagram-In-90-Day-Fiance.jpg)
+![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2024/01/90-day-fianc-_-sumit-s-mother-finally-accepts-jenny-but-fans-aren-t-convinced-it-s-genuine.jpg)
 
 ## Literature Review
 

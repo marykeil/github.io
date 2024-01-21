@@ -7,7 +7,7 @@
 
   Callum and Molly&#39;s breakup was hinted at through their lack of social media posts together, sparking speculation online.   The couple had been together for three years before reportedly deciding to go their separate ways in September 2023.   Despite their previous breakup, Callum chose Molly when given the opportunity on Love Island: All Stars, raising questions about their future together.  
 
-![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2022/08/callum-and-molly-love-island-6-1.jpg)
+![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2024/01/edit-and-pub-asap-pls-love-island-uk-all-stars_-clues-callum-molly-were-going-to-split-up-spoilers.jpg)
 
 ## Literature Review
 

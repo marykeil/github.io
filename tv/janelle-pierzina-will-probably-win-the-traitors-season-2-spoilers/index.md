@@ -7,7 +7,7 @@
 
   Janelle Pierzina is proving herself to be a formidable competitor in The Traitors US season 2, with her gameplay and ability to win shields.   Despite being seen as selfish by some of the faithfuls, most of Janelle&#39;s fellow contestants don&#39;t suspect her of being a traitor.   Janelle&#39;s alliance with fellow Big Brother alum Dan Gheesling will likely protect her, as he needs her to navigate the game and maintain his cover as a traitor.  
 
-![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2024/01/janelle-pierzina-the-traitors-promotional-poster.jpg)
+![iamge](https://static1.srcdn.com/wordpress/wp-content/uploads/2024/01/embargo-until-thursday-january-18-at-9-pm-et-et-janelle-pierzina-will-probably-win-the-traitors-season-2-spoilers.jpg)
 
 ## Literature Review
 
